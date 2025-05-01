@@ -32,9 +32,9 @@ To understand the ear signals
 
 This directly heats up or cools down the body
 
-Right ear is cool
+Right ear is cool (9 of π)
 
-Left ear is hot
+Left ear is hot (1 of π)
 
 And honey is “heat” that the workers like
 
