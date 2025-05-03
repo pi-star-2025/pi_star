@@ -78,7 +78,7 @@ It looks at you — all this plant air
 
 Creating the feeling of people looking at you
 
-Mirrors, social green air flashing in your eyes
+Plants thus create a theatre of green mirrors to bring to life our social interactions and life stories  
 
 ## 
 
