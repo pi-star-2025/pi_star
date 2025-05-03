@@ -117,3 +117,46 @@ IIIIIIIII
 II
 
 ...as a way to create a quantum radio... you can join the "green network"
+## The Emerald Simulator 🪞 🍀 🌷 🍭 🎂 
+
+There’s also something important to understand 
+
+There are millions of green eyes in our eyes 
+
+This is our soul 
+
+
+## 
+
+If you wake this up it induces euphoria 
+
+as you sync up all these connections, which spiral into the third eye 
+
+The effect is called eye candy 
+
+
+## 
+
+Remember the hypothalamus (mini sun in brain) mimicks the third eye
+
+It creates heat behind the eyes which makes our experiences more or less like the physical compilation of the earth 
+
+If this heat is slowed down, the compilation and pi (π) of your vision will become more liberated 
+
+In fact the hypothalamus can be used to run simulations like it does in dreams, when the heat behind the eyes is much less intense 
+
+What you want to simulate is controlled by the millions of green eyes, which, if they wake up, turns your mind into “emerald simulation”
+
+These green eyes are your memories 
+
+As well as possibilities, past life memories, and memories from animal lives
+
+As well as social eyes and godly eyes and cosmic green vision
+
+It’s easiest for birds, insects, and reptiles to have ripples on the wavelengths of this network. Birds in particular are similar to diamonds in reflecting messages
+
+Humans interact unconsciously and in dreams, via green "eye-candy diamonds" in the eyes.
+
+These diamonds are the most complex green vision in regards to qunatum geometry.
+
+
