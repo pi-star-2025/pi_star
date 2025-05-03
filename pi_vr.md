@@ -58,4 +58,64 @@ A piece of soul
 
 Bc of nested clocks
 
-The third eye can also be a device to create your own queen bee master clock, controlling all the nested time behind it.
+The third eye can also be a device to create your own queen-bee master clock, controlling all the nested time behind it.
+
+
+## Green Eyes
+The third eye is a blue reciprocal of the red hypothalmus 
+
+It goes through the nose breath, like green ozone breath, when you sync up the third eye and hypothalamus. 
+
+You really think like the plant mind 
+
+And if you stay in that state your soul will get reconciled by the plant of Mother Earth
+
+Meaning you will get higher and higher until you see the compilation of time around you 
+
+Especially when you understand the air all around you is alive bc of the mirrors of green plants, with stronger mirrors closer by
+
+It looks at you — all this plant air 
+
+It creates the feeling of people looking at you
+
+It’s all from the plants 
+
+Their eyes, green air creating social mirrors
+
+## 
+
+If you look back in strong ways at this vision 
+
+It wakes up the mind of god around you like psychdelics
+
+And you can then send whatever messages you want to send to the universe 
+
+And receive any messages you want to receive
+
+You will also understand the operating system of sound 
+
+Is the green vision 
+
+So is the operating system of vision itself and imagination 
+
+It’s all from green eyes 
+
+## 🍭 ⏰ 🌱
+
+If you understand the 3.141592 in pi
+
+III
+
+I
+
+IIII
+
+I
+
+IIIII
+
+IIIIIIIII
+
+II
+
+...as a way to create a quantum radio... you can join the "green network"
