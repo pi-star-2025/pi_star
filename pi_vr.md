@@ -76,11 +76,9 @@ Especially when you understand the air all around you is alive bc of the mirrors
 
 It looks at you — all this plant air 
 
-It creates the feeling of people looking at you
+Creating the feeling of people looking at you
 
-It’s all from the plants 
-
-Their eyes, green air creating social mirrors
+Mirrors, social green air flashing in your eyes
 
 ## 
 
