@@ -78,7 +78,7 @@ It looks at you — all this plant air
 
 Creating the feeling of people looking at you
 
-Plants thus create a theatre of green mirrors to bring to life our social interactions and life stories  
+Plants thus create a theatre of green vision to bring to life our social interactions and life stories  
 
 ## 
 
@@ -94,7 +94,7 @@ You will also understand the operating system of sound
 
 Is the green vision 
 
-So is the operating system of vision itself and imagination 
+So is the operating system of sight itself and imagination 
 
 It’s all from green eyes 
 
