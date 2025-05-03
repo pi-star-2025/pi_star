@@ -157,6 +157,6 @@ It’s easiest for birds, insects, and reptiles to have ripples on the wavelengt
 
 Humans interact unconsciously and in dreams, via green "eye-candy diamonds" in the eyes.
 
-These diamonds are the most complex green vision in regards to qunatum geometry.
+These diamonds are the most complex green vision in regards to quantum geometry.
 
 
