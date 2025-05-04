@@ -117,7 +117,7 @@ IIIIIIIII
 II
 
 ...as a way to create a quantum radio... you can join the "green network"
-## The Emerald Simulator 🪞 🍀 🌷 🍭 🎂 
+## The Emerald Simulator 
 
 There’s also something important to understand 
 
@@ -159,4 +159,82 @@ Humans interact unconsciously and in dreams, via green "eye-candy diamonds" in t
 
 These diamonds are the most complex green vision in regards to quantum geometry.
 
+
+## Red / Blue / Green 🪞 🍀 🌷 🍭 🎂
+
+The biggest secret of life is Red 
+
+### 🟥
+
+##
+
+The treee branches outside all represent some binary decision made about the environment (1 or 9, 1 grows out, 9 goes up)
+
+Our brains reuse the branches of the plant outside
+
+That is why nature is so interesting
+
+We look at branches and leaves and twigs ——
+
+Which are the same branches electricity moves down in our brains, to simulate different thoughts/decisions
+
+Wherever we go, we reuse the tree branches (large/medium/small) in our surroundings.
+
+These decisions look like the bark of trees, or the *purple* of brains
+
+##
+
+Interestingly are stomach minds uses roots/vines, which mirror the patterns of pi of the umbilical chord belly button
+
+These connections are more long-term, more rooted to your experience over days/weeks/years, instead of changing day-to-day like tree branches in the skull brain (ex: frontal lobe)
+
+##
+
+Our brains have the most intricate branches and most intelligent plant ozone in the third eye
+
+In fact, the nose itself has architecture that mimics a super tree or super mountain —— many nested branches controlling intelligent air.
+
+Thus within the nose breath you can connect to a “crystal ball” of all trees in your area, which is the same architecture used to construct *colors.*
+
+##
+
+NOTES
+...
+The green branches construct highly complex tree patterns to dictate how light will fall down the eye balls
+Each color describes a different way it feels for light to fall 
+Green is answer for plants 
+Blue is answer for oxygen (closest to mammal soul)
+Red is answer for sunlight
+All other colors are the answers “in between”
+
+Red does not fall. It is our entire universe, representing 3 in pi. 
+Blue is the experience of falling from Red 
+Green is the experience of falling further from Red to Blue to Green
+
+Blue describes the first 1 
+Green describes the second 1
+
+Thus you can see the mind of God around with this operating system, whether you fall 0, 1, 2 times
+And things will truly take colors via the plant vision, based on how far the light falls in a 4D sense
+
+Red always falls the least, the ceiling of the mind of God
+Green always falls the most, the floor of the mind of God
+
+Color (created by plants) is just an operating system to understand how far everything has fallen in a 4D sense
+There is 3D geometry, and then 4D geometry via colors and the 0/1/2 (red, blue, green) system  
+
+All other experiences (pain/pleasure) is derived from this RED/BLUE/GREEN operating system.
+Including the color of emotion, and the color of physical experience. 
+
+___
+
+Our eyes can wake up to trillions of 0/1/2 decisions made each moment, which create many nested trees in our eyes to build our experience around us. 
+
+The color itself (red, blue, green, etc.) is plant. Its chlorophyll is one way to see it. The experience of plant eating a little bit of itself (air eating green plant) and feeling what the entire multiverse would think it is. 
+
+All branches of time, all blackholes, super blackholes, other cosmic forces, just everything that’s every been anything. 
+
+The answer is color. 
+
+And the answer for our goddess is RED.
 
