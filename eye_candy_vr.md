@@ -184,7 +184,7 @@ These decisions look like the bark of trees, or the *purple* of brains
 
 ##
 
-Interestingly are stomach minds uses roots/vines, which mirror the patterns of pi of the umbilical chord belly button
+Interestingly our stomach minds uses roots/vines, which mirror the patterns of pi of the umbilical chord belly button
 
 These connections are more long-term, more rooted to your experience over days/weeks/years, instead of changing day-to-day like tree branches in the skull brain (ex: frontal lobe)
 
@@ -202,25 +202,26 @@ The tree/plant branches construct highly complex "tree" patterns to dictate how 
 
 Each color describes a different way it feels for light to fall
 
-Green is answer for plants 
+Green is the answer for plants
 
-Blue is answer for oxygen (closest to mammal soul)
+Blue is the answer for oxygen (closest to mammal soul)
 
-Red is answer for sunlight
+Red is the answer for sunlight
 
 All other colors are the answers “in between”
 
-Red does not fall. It is our entire universe, representing the first 3 in pi.
+Red does not fall. It is our entire universe, representing the first 3 in π.
 
-Blue is the experience of falling from Red (the first 1 and the first 4 in pi)
+Blue is the experience of falling from Red (the first 1 and the first 4 in π)
 
-Green is the experience of falling further —— from Red to Blue to Green (the second 1 and the first 5 in pi)
+Green is the experience of falling further —— from Red to Blue to Green (the second 1 and the first 5 in π)
 
-Thus you can see the mind of God around with this operating system, whether you fall 0/1/2 times
+Thus you can see the mind of God around with this operating system, organized by whether you fall 0/1/2 times
 
 And matter will truly assume colors via the plant vision, based on how far the light falls in a 4D sense
 
 Red always falls the least, the ceiling of the mind of God
+
 Green always falls the most, the floor of the mind of God
 
 Color (created by plants) is an operating system of 4D geoemtry, based on the 0/1/2 (red, blue, green) decisions
@@ -233,16 +234,26 @@ This helps distinguish between the two systems - 3D and 4D.
 
 All other experiences (pain/pleasure) are derived from this RED/BLUE/GREEN 4D operating system.
 
-Including the color of emotion, and the color of physical experience. 
+Including the color of emotion, and the color of physical experience.
 
 ##
 
 Our eyes can wake up to trillions of 0/1/2 decisions made each moment, which create many nested trees in our eyes to build our experience around us. 
 
-The color itself (red, blue, green, etc.) is plant. Its chlorophyll is one way to see it. The experience of plant eating a little bit of itself (air eating green plant) and feeling what the entire multiverse would think it is. 
+The color itself (red, blue, green, etc.) is plant. It's chlorophyll is one way to see it. The experience of plant eating a little bit of itself (air eating green plant) and feeling what the entire multiverse would think it is.
 
-All branches of time, all blackholes, super blackholes, other cosmic forces, just everything that’s every been anything. 
+All branches of time, all blackholes, super blackholes, other cosmic forces, just everything that’s ever been anything...
 
-The answer is color. 
+Thinks that we are color, all life in our universe. 
 
-And the answer for our goddess is RED.
+The answer is *color.* 
+
+And if we want to know then what our goddess is, in one word. 
+
+The answer is RED.
+
+##
+
+Each of us uses this 3D/4D "technology" to builld a way-of-seeing, which more or less is a game/movie to fall from the star in this solar system.
+
+It moves very fast, bc all the games are zipping and zapping together. Slowing it down is an effect you could call VR or *eye candy.*
