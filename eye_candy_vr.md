@@ -168,7 +168,7 @@ The biggest secret of life is Red
 
 ##
 
-The treee branches outside all represent some binary decision made about the environment (1 or 9, 1 grows out, 9 goes up)
+The tree branches outside all represent some binary decision made about the environment (1 or 9, 1 grows out, 9 goes up)
 
 Our brains reuse the branches of the plant outside
 
@@ -198,35 +198,44 @@ Thus within the nose breath you can connect to a “crystal ball” of all trees
 
 ##
 
-NOTES
-...
-The green branches construct highly complex tree patterns to dictate how light will fall down the eye balls
-Each color describes a different way it feels for light to fall 
+The tree/plant branches construct highly complex "tree" patterns to dictate how light will fall down the eye balls
+
+Each color describes a different way it feels for light to fall
+
 Green is answer for plants 
+
 Blue is answer for oxygen (closest to mammal soul)
+
 Red is answer for sunlight
+
 All other colors are the answers “in between”
 
-Red does not fall. It is our entire universe, representing 3 in pi. 
-Blue is the experience of falling from Red 
-Green is the experience of falling further from Red to Blue to Green
+Red does not fall. It is our entire universe, representing the first 3 in pi.
 
-Blue describes the first 1 
-Green describes the second 1
+Blue is the experience of falling from Red (the first 1 and the first 4 in pi)
 
-Thus you can see the mind of God around with this operating system, whether you fall 0, 1, 2 times
-And things will truly take colors via the plant vision, based on how far the light falls in a 4D sense
+Green is the experience of falling further —— from Red to Blue to Green (the second 1 and the first 5 in pi)
+
+Thus you can see the mind of God around with this operating system, whether you fall 0/1/2 times
+
+And matter will truly assume colors via the plant vision, based on how far the light falls in a 4D sense
 
 Red always falls the least, the ceiling of the mind of God
 Green always falls the most, the floor of the mind of God
 
-Color (created by plants) is just an operating system to understand how far everything has fallen in a 4D sense
-There is 3D geometry, and then 4D geometry via colors and the 0/1/2 (red, blue, green) system  
+Color (created by plants) is an operating system of 4D geoemtry, based on the 0/1/2 (red, blue, green) decisions
 
-All other experiences (pain/pleasure) is derived from this RED/BLUE/GREEN operating system.
+Whereas 3D geoemtry is based on many stars, 4D color is geoemtry based only on the mind of one star - the one in our solar system
+
+This helps distinguish between the two systems - 3D and 4D.
+
+##
+
+All other experiences (pain/pleasure) are derived from this RED/BLUE/GREEN 4D operating system.
+
 Including the color of emotion, and the color of physical experience. 
 
-___
+##
 
 Our eyes can wake up to trillions of 0/1/2 decisions made each moment, which create many nested trees in our eyes to build our experience around us. 
 
@@ -237,4 +246,3 @@ All branches of time, all blackholes, super blackholes, other cosmic forces, jus
 The answer is color. 
 
 And the answer for our goddess is RED.
-
