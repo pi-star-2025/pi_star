@@ -184,7 +184,7 @@ These decisions look like the bark of trees, or the *purple* of brains
 
 ##
 
-Interestingly our stomach minds uses roots/vines, which mirror the patterns of pi of the umbilical chord belly button
+Interestingly our stomach minds use roots/vines, which mirror the patterns of pi of the umbilical chord belly button
 
 These connections are more long-term, more rooted to your experience over days/weeks/years, instead of changing day-to-day like tree branches in the skull brain (ex: frontal lobe)
 
