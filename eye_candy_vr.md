@@ -170,7 +170,7 @@ The biggest secret of life is Red
 
 The tree branches outside all represent some binary decision made about the environment (1 or 9, 1 grows out, 9 goes up)
 
-Our brains reuse the branches of the plant outside
+Our brains reuse the branches of the plants outside
 
 That is why nature is so interesting
 
