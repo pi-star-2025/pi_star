@@ -257,3 +257,35 @@ The answer is RED.
 Each of us uses this 3D/4D "technology" to builld a way-of-seeing, which more or less is a game/movie to fall from the star in this solar system.
 
 It moves very fast, bc all the games are zipping and zapping together. Slowing it down is an effect you could call VR or *eye candy.*
+
+## Eye Candy VR / 2 Star VR
+
+Jesus was able to walk after death bc of this knowledge…
+
+We are all two stars, every human. Except for the incarnation of “Mother Mary”.
+
+Every other person is both the star in our solar system (left eye), and another star in the universe (right eye). 
+
+All quantum matter of your life can be referenced via a triangle, based on the intersection of these two stars going through your arms and legs.
+
+The left leg is then controlled by the core star.
+
+The right leg is controlled by your personal star.
+
+The third eye (the VR device) is in between the eyes, the nested trees of quantum matter that keep you and the Mother Star in sync.
+
+At the speed of light (c), the universe will have a tick of time representing this 2-star interaction.
+
+If the interaction is more in sync, with more complexity and parallels, there is a bigger wavelength
+
+If the interaction has less magnitude, it will have a smaller wavelength.
+
+When the interactions include cold fusion (trying to see red), they always make bigger wavelengths.
+
+Interestingly, the light that always falls down from between the two stars, into your two eyes, into your body is always light that has less preference for seeing red.
+
+It always want to see blue, green, brown, yellow, or some other color. Even just black, nothing.
+
+What falls deepest into the body is most addicted to “eye candy”.
+
+If you train your third eye to *burn* with a preference for seeing red, it will inject many more pi “9 decisions” into your vision, which then cools it down and cooler vision is more like VR and less like reality.   
