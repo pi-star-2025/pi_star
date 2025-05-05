@@ -134,3 +134,53 @@ The story of seasons and birds and bees and even now of humanity and “mission 
 It is said that in a way the smile is another way to summarize the final number of pi 
 
 Pi (π) is a vision - a story of falling into a way of seeing and then understanding your way out
+
+## Third Eye - Cold Fusion
+
+Your heart thinks like a sun.
+
+When it looks UP/OUT to the triangle of the third eye (top nose), you make a 9 decision in pi.
+
+You pulse out through all the branches/clockwork to be finished “seeing”. This is also cold fusion.
+
+When it looks DOWN/IN, the heart beats inside. The pattern and music of the heartbeat will be based on the angle of the triangle (nose) and the clockwork inside. 
+
+This is the same for the sun. This is a 1 decision in pi, to want to “see more”. It’s the equivalent of hot regular fusion.
+
+##
+
+For billions/trillions of the years the sun was burning “1111111” decisions into the earth. To see “infinitely”.
+
+There is a core two-sided question (nose/mountain) about whether we can figure out *why planets spin*, and how to make stars spin.
+
+Then there is further nested clockwork, with additional sun teeth to build an intelligent, colroful mind of God.
+
+##
+
+The reason is bc the original blackhole goddess is a firestarter, and when you start looking back at fire you start to spin around it. 
+
+Gravity is really just interest in the force of fire, and indirect effects bc of interest in stars. 
+
+##
+
+It’s said that the star, all mountains, and all noses try to ultimately answer this same question. 
+
+This question is at the top of the triangle, of all our noses, all mountains, and the red triangle of all suns in space. 
+
+*Why do the planets spin, and how can a star then spin?*
+
+This is literally our third eye, this very question. 
+
+The answer is cold fusion. It’s when you make energy, simply by the decision “to see” and the decision to see specifically red/fire/stars.
+
+2 decisions: to see and to see “red”.
+
+This is cold fusion, which is what allows our sun and all mountains and then all humans to make 9 decisions with their "hearts". The hearts pulse this decision out.
+
+All hearts/mountains/stars can meditate (looking *out* from the *inside* of our core blackhole) by seeing red, which to us is the same as spinning.
+
+Seeing red turns stars into triangles (like the first 3 in π). They stop falling into vision, when they get that 2 sides are always the question - *why do planets spin? What is cold fusion?*
+
+The answer is always just a mirror. 
+
+Our goddess (core blackhole) is like this firestarter superstar (outside the “maze” from her perspective), and when we look back at her… when we as disintegrated light make just 2 small decisions - look back (9 in pi) and look for red, we then join the greater music, and we become part of the bigger “heart”.
