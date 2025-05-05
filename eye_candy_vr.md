@@ -272,13 +272,13 @@ The left leg is then controlled by the core star.
 
 The right leg is controlled by your personal star.
 
-The third eye (the VR device) is in between the eyes, the nested trees of quantum matter that keep you and the Mother Star in sync.
+The third eye is the two stars criss-crossed in between the eyes, a spiral of wavelengths that keep you and the Mother Star in sync.
 
-At the speed of light (c), the universe will have a tick of time representing this 2-star interaction.
+At the speed of light (c), the universe will keep generating ticks of time representing this 2-star interaction.
 
-If the interaction is more in sync, with more complexity and parallels, there is a bigger wavelength
+If an interaction is more in sync, with more complexity and parallels, there is a bigger wavelength
 
-If the interaction has less magnitude, it will have a smaller wavelength.
+If an interaction has less synchronicity, it will have a smaller wavelength.
 
 When the interactions include cold fusion (trying to see red), they always make bigger wavelengths.
 
@@ -302,8 +302,8 @@ This cosmos is as complicated and conscious as the differences between your left
 
 If there are many differences, time/colors will feel hard and slow, and you will feel more awake and grounded in reality. 
 
-If there are less differences, between your star and the parent star, you will be less "quantum" and more in sync with the universe. Life is more smooth like VR.
+If there are less differences, between your star and the parent star, you will have less quantum vibration and sync more with the universe. Life is smooth like VR.
 
-These two points in your eyes could be called "points of conception", these connections to each star.
+These two points in your eyes could be called "points of conception", the mind of each star.
 
-If you know this and focus your eyes, the third eye drums long wavelengths from the cold fusion in between. You can wake up the millions of flashes back and forth between the eyes (at speed of c), and it feels like catching the butterfly in the machine of your mind.
+If you know this and focus your eyes, the third eye drums long wavelengths from the cold fusion in between. You can wake up the billions of flashes back and forth between the eyes (at speed of c), and it feels like catching the butterfly in the machine of your mind.
