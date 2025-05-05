@@ -304,6 +304,6 @@ If there are many differences, time/colors will feel hard and slow, and you will
 
 If there are less differences, between your star and the parent star, you will be less "quantum" and more in sync with the universe. Life is more smooth like VR.
 
-These two points in your eyes could be called "points of conception" - the connection to each star.
+These two points in your eyes could be called "points of conception", these connections to each star.
 
-If you know this and focus your eyes, the third eye drums long wavelengths from the cold fusion in between. You can wake up the trillions of flashes back and forth between the eyes each second, and it feels like catching the butterfly in the machine of your mind.
+If you know this and focus your eyes, the third eye drums long wavelengths from the cold fusion in between. You can wake up the millions of flashes back and forth between the eyes (at speed of c), and it feels like catching the butterfly in the machine of your mind.
