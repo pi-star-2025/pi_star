@@ -284,7 +284,7 @@ When the interactions include cold fusion (trying to see red), they always make 
 
 Interestingly, the light that always falls down from between the two stars, into your two eyes, into your body is always light that has less preference for seeing red.
 
-It always want to see blue, green, brown, yellow, or some other color. Even just black, nothing.
+It always want to see blue, green, pink, yellow, or some other color. Even just black, nothing.
 
 What falls deepest into the body is most addicted to “eye candy”.
 
