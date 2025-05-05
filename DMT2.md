@@ -175,9 +175,9 @@ The answer is cold fusion. It’s when you make energy, simply by the decision �
 
 2 decisions: to see and to see “red”.
 
-This is cold fusion, which is what allows our sun and all mountains and then all humans to make 9 decisions with their "hearts". The hearts pulse this decision out.
+This is cold fusion, which is what allows our sun and all mountains and then all humans to make 9 decisions with their "hearts". The hearts pulse this decision out like radios.
 
-All hearts/mountains/stars can meditate (looking *out* from the *inside* of our core blackhole) by seeing red, which to us is the same as spinning.
+All hearts/mountains/stars can meditate (looking *out* from the *inside* of our core blackhole) by seeing red wavelengths, which to us is the same as spinning.
 
 Seeing red turns stars into triangles (like the first 3 in π). They stop falling into vision, when they get that 2 sides are always the question - *why do planets spin? What is cold fusion?*
 
