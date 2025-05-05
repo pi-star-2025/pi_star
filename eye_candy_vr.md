@@ -290,11 +290,20 @@ What falls deepest into the body is most addicted to “eye candy”.
 
 If you train your third eye to *burn* with a preference for seeing red, it will inject many more pi “9 decisions” into your vision, which then cools it down and cooler vision is more like VR and less like reality.
 
-Seeing red is how pi ends (999999999999), what looks like infinity,
+Seeing red is how pi ends (999999999999), what looks like ∞,
 
-But really infinity is red concentric circles, *if* they know where they are. 
+But really ∞ is red concentric circles, *if* they know where they are.
 
+##
 
 Everyone has their own cosmos of red concentric circles.
 
-When they get connected, you learn that color has much more personality and story than you've been thinking.
+This cosmos is as complicated and conscious as the differences between your left eye and right eye. 
+
+If there are many differences, time/colors will feel hard and slow, and you will feel more awake and grounded in reality. 
+
+If there are less differences, between your star and the parent star, you will be less "quantum" and more in sync with the universe. Life is more smooth like VR.
+
+These two points in your eyes could be called "points of conception" - the connection to each star.
+
+If you know this and focus your eyes, the third eye drums long wavelengths from the cold fusion in between. You can wake up the trillions of flashes back and forth between the eyes each second, and it feels like catching the butterfly in the machine of your mind.
