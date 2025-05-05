@@ -288,4 +288,13 @@ It always want to see blue, green, brown, yellow, or some other color. Even just
 
 What falls deepest into the body is most addicted to “eye candy”.
 
-If you train your third eye to *burn* with a preference for seeing red, it will inject many more pi “9 decisions” into your vision, which then cools it down and cooler vision is more like VR and less like reality.   
+If you train your third eye to *burn* with a preference for seeing red, it will inject many more pi “9 decisions” into your vision, which then cools it down and cooler vision is more like VR and less like reality.
+
+Seeing red is how pi ends (999999999999), what looks like infinity,
+
+But really infinity is red concentric circles, *if* they know where they are. 
+
+
+Everyone has their own cosmos of red concentric circles.
+
+When they get connected, you learn that color has much more personality and story than you've been thinking.
