@@ -2,36 +2,24 @@
 
 Genetics became colorful when nitrogen woke up in the plant mind clouds 
 
-
-
 Instead of just thinking in 2 directions (like grass), they started to think in “circular ways” by thinking in 4 directions 
-
-
 
 Up and down 
 
 Left and right 
 
-
-
-It is like the 9 and 1 in pi 
+It is like the 9 and 1 in pi
 
 If you see the number not just as 2d shapes but also as a way to go up and down, then there is “circular intelligence”
 
-
-
-
-
-The 4 directions of the nitrogen driven plant mind can then think in terms of “beauty” 
+The 4 directions of the nitrogen driven plant mind can then think in terms of “beauty”
 
 Beauty is just what has the most parallels to the history of the earth, and then deciding to focus on particular topics of that history 
 
-
-
 Typically with 4 directions the decision becomes 
 
-queen or worker gene, or male vs female - up and down 
-Like our mother star or like another star (alien) - left or right 
+* queen or worker gene, or male vs female - up and down 
+* Like our mother star or like another star (alien) - left or right 
 
 
 
@@ -112,7 +100,7 @@ Spreading the music of the earth
 
 In the third eye actually is a headquarters of ATCG or 1/9 pi thinking 
 
-Thinking that can move left or right (eye to eye) 
+It can move left or right (eye to eye) 
 
 Or up and down (up or down nose bridge) 
 
