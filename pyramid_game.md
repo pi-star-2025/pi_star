@@ -18,7 +18,7 @@ Mostly bc of understanding of circular time and what we now call *pi*
 
 So there was a godly story to lower humanity 
 
-At a certain point (perhaps around the ice age) 
+At a certain point (perhaps around the ice age) using a maze of bones
 
 ## Maze of Bones
 
@@ -32,7 +32,7 @@ The nose also encodes challenges by these aliens, arguing we are all heart and l
 
 This challenge - from god and from the aliens - is in the patterns of all human nose cartilage. 
 
-And then there is formulas from the deep nose air to create the skull and other bones to rise and answer this challenge 
+And then there are formulae from the deep nose air to create the skull and other bones to rise and answer this challenge 
 
 Hence the third eye opens up with an understanding of pi 
 
@@ -53,8 +53,6 @@ Why we feel like we’re in a game everyday
 It’s all about pi (π) and it’s all about the nose 
 
 When you get this, the game starts to turn off and the movie starts to turn on… 
-
-🎈 🎈 
 
 Your bones are all hard, intelligent clouds. 
 
@@ -97,3 +95,5 @@ It’s in our breath, if we really listen.
 And the response from the Mad Queen for getting pi, is this. 
 
 Have you heard of something called VR
+
+### 🌷
