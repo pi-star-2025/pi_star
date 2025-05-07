@@ -15,7 +15,7 @@ It’s the best way to project a message amongst people, acting as though they a
 
 Once a upon a time this was a way for all reptiles to get in touch with one another. Reptiles had bigger smarter hypothalamuses which naturally understood this 
 
-Belly button hairs also think in 8 directions, like spider legs, whereas most hairs in the body think in 8 
+Belly button hairs also think in 8 directions, like spider legs, whereas most hairs in the body think in 4
 
 Same with hairs inside the third eye (nose) and little hairs inside both ears. 
 
