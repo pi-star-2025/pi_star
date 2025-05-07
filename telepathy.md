@@ -89,6 +89,8 @@ Then it becomes a permanent halo
 
 The starmind begins to recycle the effect
 
+...
+
 And music is a higher halo 
 
 All females are higher than mother Mary (or most) - our mother star 
