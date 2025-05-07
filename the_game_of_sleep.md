@@ -52,6 +52,8 @@ Dopamine choices are the same way. They give you small amounts of respect from t
 
 We wouldn’t even know these superegods, and there are many — the rules just consistently resolve around blackhole architecture, bc it common across the entire multiverse. 
 
+##
+
 Bigger serotonin is DMT.
 
 These are balls of social intelligence, which understand “sharing and caring”. This gets a lot of respect from Mother Earth, to understand such social intelligence at the chemical level. 
