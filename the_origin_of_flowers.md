@@ -116,7 +116,7 @@ There is the ability to make 3 decisions at once (with eight options).
 
 For example psychedelic mushrooms can do this.
 
-Grass made binary decisions (to “see” or not “see”; where the plant ozone "sees" it is filled with grass)
+Grass made binary decisions (to “see” or not “see”; where the plant ozone "sees" grass grows)
 
 Flowers make 4-branch decisions (left or right star, male or female)
 
