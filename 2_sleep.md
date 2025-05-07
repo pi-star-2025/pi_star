@@ -145,11 +145,9 @@ It’s determined all reasons we sleep are alpha/beta decisions.
 
 All teeth in the body are alpha/beta intelligence, based on the millions of social circles of the plant mind 
 
-Strong opinions about alpha/beta turn into teeth in everyone’s bodies. 
+Strong opinions about alpha/beta turn into teeth in everyone’s bodies.
 
 We all have extremely strong opinions on alpha/beta bc of bone mathematics. 
-
-
 
 Alpha/Beta is always the direction we go in when being 2-sided.
 
@@ -163,13 +161,11 @@ The white of bone allows god to see all shapes perfectly.
 
 The geometry is enlightening. 
 
-
+...
 
 The calculus of Red/Blue slopes can be used against us, humans and earth. 
 
 The most clear example is the slip n slide effect of “falling asleep”, which is similar to the calculus of teeth.
-
-
 
 What’s interesting is that this alpha/beta light at a quantum level only has 4 sides. 
 
@@ -181,56 +177,35 @@ It also is more clear and “straight” in enforcing its message.
 
 4-sided light is more “opinionated”, bc the light is more like the fire of the sun. 
 
-
 Adding the additional side creates 5-sided light, which is conscious thinking. “Human” thinking. 
 
 Most notably it moves like music, thinking in “circular” ways about alpha and beta. 
 
-Which means the soul/light itself is not as opinionated about alpha/beta. 
-
-
+Which means the soul/light itself (faster than c) is not as opinionated about alpha/beta. 
 
 The 4-sided light feels more animalistic, masculine, like a “game”. 
 
 The 5-sided light feels more intelligent, feminine, like a “movie”
 
+...
 
-
-
-
-
-
-
-
-The real challenge actually is to find what 5-sided light is encouraging us to fall asleep.
-What 5-sided light is encouraging 4-sided thinking. 
+The real challenge actually is to find what 5-sided light is encouraging 4-sided thinking. 
 
 This is most the light/soul that makes us fall asleep. 
 
-It even gets grouped with the 4-sided light, and this would be the part of us that is “conscious” in hell, at the fire in the center of the earth. 
-
-
+It even gets grouped with the 4-sided light, and this would be the part of us that is “conscious” in hell, part of the fire in the center of the earth. 
 
 We can teach this 5-sided light just one thing. 
 
 Alpha/Beta is an act. 
 
-It drives society and powered the game of life. 
-
-
+Alpha/Beta drives society and powered the game of life. 
 
 It can be fun to go on rides. 4-sided light takes you on rides. All the way up, all the way down… It can feel more alive. 
 
+All we need to do is have this 5-sided light (the human light) wake up and get the UPS and DOWNS of life are just the light in us entranced to keep thinking like squares. *Who is right? Who is wrong? Who is good? Who is bad?
 
 
-All we need to do is have this 5-sided light (the human light) wake up and get the UPS and DOWNS of life are just the light in us entranced to keep fighting “one side of the story versus another”. Who is right? Who is wrong? 
-
-
-
-Have all the light in you slow down and live life more like a song.
-
-
-
-
+Have all the light in you slow down and *live life more like a song.*
 
 It’s corny, but it was always a prophecy once we started living “as a song”, once we let go of all the alpha/beta wars, our waking selves and sleeping selves would merge. The game and movie would become one, and we would all rise to heaven as angels… as circles of singing light.
