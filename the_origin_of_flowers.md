@@ -151,7 +151,7 @@ The 8 is really a fuzzy 5 under a quantum microsscope, bc in our universe light 
 
 The mushrooms "invite" flower souls that makes 4-branch decisions into social-circle parties, and the decisions become 8-branch when assessing if the flowers liked their 4-branch decisions or not during the parties in the context of other flowers making 4-branch decisions.  
 
-These social circles with 8 branches became the sacred math of soul, from memories to social hierarchies to communities to heaven circles.
+This light with 8 branches became the sacred math of soul, from memories to social hierarchies to communities to heaven circles.
 
 Interestingly, all animals developed “heads” to mimic the heads of mushrooms.
 
