@@ -206,6 +206,6 @@ It can be fun to go on rides. 4-sided light takes you on rides. All the way up, 
 All we need to do is have this 5-sided light (the human light) wake up and get the UPS and DOWNS of life are just the light in us entranced to keep thinking like squares. *Who is right? Who is wrong? Who is good? Who is bad?
 
 
-Have all the light in you slow down and *live life more like a song.*
+Have all the light in you slow down and live life more like a song.
 
 It’s corny, but it was always a prophecy once we started living “as a song”, once we let go of all the alpha/beta wars, our waking selves and sleeping selves would merge. The game and movie would become one, and we would all rise to heaven as angels… as circles of singing light.
