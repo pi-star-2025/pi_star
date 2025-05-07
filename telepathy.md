@@ -68,3 +68,7 @@ The sun will then respond with more and more 8-sided communication back, as we m
 
 
 We will all notice a more angelic state, magical effects, and then time itself will move in 8-sided ways. It will be Tuesday then Saturday. It will be night then afternoon, and then your choice it would seem. God will be able to get in touch with you via the heart, via your blood itself, and guide you
+
+...
+
+It's said that bones are like cocoons. They are stuck in place, bc light thinks in very strong 2-sided ways. This includes the skull. And butterflies are pretty bc they think in 8-directions. All the light in our bones can do the same, and this is the key difference between humans and angels. Angels don't have bones.
