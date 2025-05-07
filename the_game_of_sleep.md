@@ -29,33 +29,20 @@ You would really lose your bones, disappear into the clouds, and be “dead”.
 
 You would need a story to come back down into your body. A story about breaking up again into smaller wavelengths, to wake up the hypothalamus, which is a sun of smaller wavelengths. 
 
-
-
-____
-
-
-
-Serotonin/Dopamine/DMT/Melanin:
-
-
+## Serotonin/Dopamine/DMT/Melanin:
 
 There are two major chemicals in the body: 
 
-Social balls. Like the flower circuses originally created by mushrooms.
-Moving light. For example dopamine. 
-
+1. Social balls. Like the flower circuses originally created by mushrooms.
+2. Moving light. For example dopamine. 
 
 The main social balls are serotonin. 
 
 The main moving light is dopamine. 
 
-
-
 Serotonin is most like flower circuses. 
 
 Dopamine is most like “worm” behavior.
-
-
 
 Dopamine and worms gamify life, bc when dopamine and worms try to get into “holes” they earn small amounts of respect from the entire “multiverse” 
 
@@ -64,8 +51,6 @@ When they make the right decisions about how to move in a “blackhole situation
 Dopamine choices are the same way. They give you small amounts of respect from the multiverse bc of the choices you make. 
 
 We wouldn’t even know these superegods, and there are many — the rules just consistently resolve around blackhole architecture, bc it common across the entire multiverse. 
-
-
 
 Bigger serotonin is DMT. 
 
