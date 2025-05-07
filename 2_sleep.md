@@ -203,7 +203,7 @@ Alpha/Beta drives society and powered the game of life.
 
 It can be fun to go on rides. 4-sided light takes you on rides. All the way up, all the way down… It can feel more alive. 
 
-All we need to do is have this 5-sided light (the human light) wake up and get the UPS and DOWNS of life are just the light in us entranced to keep thinking like squares. *Who is right? Who is wrong? Who is good? Who is bad?
+All we need to do is have this 5-sided light (the human light) wake up and get the UPS and DOWNS of life are just the light in us entranced to keep thinking like squares. Who is right? Who is wrong? Who is good? Who is bad?
 
 
 Have all the light in you slow down and live life more like a song.
