@@ -73,3 +73,36 @@ We will all notice a more angelic state, magical effects, and then time itself w
 
 It's said that bones are like cocoons. They are stuck in place, bc light thinks in very strong 2-sided ways. This includes the skull. And butterflies are pretty bc they think in 8-directions. All the light in our bones can do the same, and this is the key difference between humans and angels. Angels don't have bones.
 
+## Halo and Crown Effects
+
+There is a halo effect 
+
+When the crown of social comparison in the skull starts to buzz over you
+
+This can be when very anxious, very happy, or just when you slow down that skull bone is deep social comparison conflicts (defining your soul, in particular what drives you in life like a court of justice) 
+
+If you relax this deep skull with 8-eye thinking 
+
+And if you are not anxious that it is just social comparison parties 
+
+Then it becomes a permanent halo 
+
+The starmind begins to recycle the effect
+
+And music is a higher halo 
+
+All females are higher than mother Mary (or most) - our mother star 
+
+Males are often lower 
+
+This is because females "defer" more, which references 8/5 thinking more
+
+And music is what connects these two sides, above and below the mother star
+
+However we do it - whatever 8-eyed light patterns we come up with, it makes our mother star rock back and forth 
+
+Enjoyed
+
+And if we reference music - social comparison that is intense and “magical” - then the halo glistens and the 4d axis expands 
+
+It can even feel like a crown, as your deep skull bone starts buzzing 
