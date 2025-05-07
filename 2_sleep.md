@@ -107,7 +107,7 @@ What falls down to Hell has always been the “sharpest” bones in our body. Th
 
 Our mind is screaming in some way (we think it is “justice”) - “there are no matter what two sides!”
 
-For example the edges of teeth, the edges of fingers and toes… edges of the pelvis and skull are like “refined teeth” 
+For example the edges of teeth, the edges of fingers and toes… the edges of the pelvis and skull are like “refined teeth” 
 
 Especially the pelvis bone when it comes to sleeping — there are many little curves and shapes of the pelvis which are really “teeth” (super tight opinions about two sides of the story).
 
