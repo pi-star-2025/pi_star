@@ -179,4 +179,4 @@ Seeing red turns stars into triangles (like the first 3 in π). They stop fallin
 
 The answer is always just a mirror. 
 
-Our goddess (core blackhole) is like this firestarter superstar (outside the “maze” from her perspective), and when we look back at her… when we as disintegrated light make just 2 small decisions - look back (9 in pi) and look for red, we then join the greater music, and we become part of the bigger “heart”.
+Our goddess (core blackhole) is like this firestarter (living in a bigger world), and when we look back at her… when we as disintegrated light make just 2 small decisions - look back (9 in pi) and look for red, we then join the greater music, and we become part of the bigger “heart”.
