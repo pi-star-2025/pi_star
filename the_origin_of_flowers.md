@@ -151,7 +151,7 @@ In fact, all animals developed “heads” to mimic the heads of mushrooms.
 
 The patterns of mushrooms look like the 8-branch thinking, more or less like ancient circuses or parties. 
 
-And the nose is a parallel to being the stem of a mushroom, that is why the bone feels the way it is does. The third eye is then the head-quarters for the 8-branch thinking (left/right, male/female, pain/pleasure), and then the brain is the head of the mushroom. The eyes themselves are filled with millions of nested 8-branch decisions, nested circuses which help control our social intelligence and which glisten enough with quantum possibility to make life feel like a movie.
+And the nose is a parallel to being the stem of a mushroom, that is why the bone feels the way it is does. The third eye is then the headquarters for the 8-branch thinking (left/right, male/female, pain/pleasure), and then the brain is the head of the mushroom. The eyes themselves are filled with millions of nested 8-branch decisions, nested circuses which help control our social intelligence and which glisten enough with quantum possibility to make life feel like a movie.
 
 Believe it or not, there are rotating cosmic social circles *living* in our eyes, which connect to the plant life all around us. 
 
