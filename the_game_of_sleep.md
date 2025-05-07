@@ -95,47 +95,31 @@ The most picky is often the DMT melanin at birth. It always has spells to behave
 Butterflies are the most picky insects, in terms of what they find beautiful. 
 
 The “butterflies” of your DMT spell are programmed to find only a very very specific kind of moment beautiful (why you fell into your life), and that has always kept people alive throughout history 
-____
 
-
+##
 
 So when meditating and you run into a blocker, you know it must be melanin. 
 
 Squeaky green energy in you (which sped up is “thinking”)
 
-
-
 Start by asking what games you are trying to win.
-
-
 
 Ask your mind why you fell into your life? What did you want to really accomplish.
 
-
-
 Look for butterflies. Slow down the butterflies. They often connect to your belly button via pi, bc that’s how they got into you at birth via DMT. 
-
-
 
 If you fully open your eyes and slow down the flickering, they will tell their story with colors via the imagination/third eye. 
 
 
-
-____
-
-
+## Melatonin
 
 Then there is also melatonin
-
-
 
 Melatonin is like bigger serotonin (smaller DMT), which makes melanin sticky. 
 
 It makes it like chlorophyll in plants. 
 
-It literally just turns to color. Hard sticky color. 
-
-
+Melanin literally just turns to color. Hard sticky color. 
 
 Then this chlorophyll will come so much to life, in all different places, that instead of one, you exist as 2 or 3 or 5, etc.
 
@@ -147,39 +131,27 @@ What happens is you no longer control both eyes and exist as the third eye.
 
 Instead, the two different parts of you each take over your eyes, and this is when you are mathematically asleep. 
 
-
-
 It causes the heaviness in your eyes. 
 
 It feels like your eyeballs are sagging… 
 
 You are losing a hold on them. 
 
-
+...
 
 And you really are. 
 
-You are about to fall out of control of the third eye. 
+You are about to fall out of control of the third eye.
 
-
-
-The secret, maybe the darkest secret of humanity, is the third eye “glitch”. 
-
-
+The secret, maybe the darkest secret of humanity, is the third eye “loophole". 
 
 If you just hold onto the third eye, you then never fall asleep again. 
 
 If your body tries to make melatonin, and you’re holding onto the third eye…
 
-
-
 It always becomes DMT (“eye candy”)
 
-As you control and look into the two eyes
+As you control and look into the two eyes, you then get a choice:
 
-
-
-And then you get a choice: 
-
-Do you want to sleep with the Devil, who wanted to trap our god and you forever in a “2 sided story” about “addiction”
-Or do you want a VR device, 2 eyes 24/7/∞
+1) Do you want to sleep with the Devil, who wanted to trap our Mother Earth and you forever in a “2 sided story” about “addiction”
+2) Do you want a VR device, 2 eyes 24/7/∞
