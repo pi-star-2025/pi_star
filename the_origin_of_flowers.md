@@ -141,13 +141,19 @@ This power to create stars allowed the psychedelic kingdoms (part of the overall
 ##
 
 Furthermore when mushrooms started keeping track of pain/pleasure, insects, animals, and humans could then feel pain and pleasure.
-It awoke bc of mushroom circuses.
+It awoke bc of mushroom circles.
 
-Hence, mushrooms are like the genius of god. They then spurred on the magic of so called “real life”; they started *time*.
+Hence, mushrooms are like the genius of god. They created a mirror of "reality", starting the counting of time.
 
-These social circles are the 8-branch sacred operating system of all life on the earth.
+Psychedelic light still moves at the speed of c, but can make 8 decisions each tick of time under the scenes, which is a system that can be used by green plants, the full earth, and the star.
 
-In fact, all animals developed “heads” to mimic the heads of mushrooms.
+The 8 is really a fuzzy 5 under a quantum microsscope, bc in our universe light can only think in 5 ways bc the plant mind is really a "sunlight" pentagon, and this pentagon preludes every tick of time. Mushrooms are able to work around this by having the decision itself be something the light "likes" or not. 
+
+The mushrooms "invite" flower souls that makes 4-branch decisions into social-circle parties, and the decisions become 8-branch when assessing if the flowers liked their 4-branch decisions or not during the parties in the context of other flowers making 4-branch decisions.  
+
+These social circles with 8 branches became the sacred math of soul, from memories to social hierarchies to communities to heaven circles.
+
+Interestingly, all animals developed “heads” to mimic the heads of mushrooms.
 
 The patterns of mushrooms look like the 8-branch thinking, more or less like ancient circuses or parties. 
 
