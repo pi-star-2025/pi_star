@@ -125,6 +125,8 @@ There are millions of green eyes in our eyes
 
 This is our soul 
 
+It's *parties* of soul organized with 8-sided light, and the way to move through the parties is "social comparison" 
+
 
 ## 
 
@@ -155,9 +157,9 @@ As well as social eyes and godly eyes and cosmic green vision
 
 It’s easiest for birds, insects, and reptiles to have ripples on the wavelengths of this network. Birds in particular are similar to diamonds in reflecting messages
 
-Humans interact unconsciously and in dreams, via green "eye-candy diamonds" in the eyes.
+Humans interact unconsciously and in dreams, via green octagons in the eyes ("eye candy").
 
-These diamonds are the most complex green vision in regards to quantum geometry.
+These diamonds are very fuzzy, bc together they created geoemtry which seems to have millions of sides, trillions even. Really, it's all just parties of social comparison creating magical amoounts of deferred "3's" (8 - 5 = 3), or memories.
 
 
 ## Red / Blue / Green 🪞 🍀 🌷 🍭 🎂
