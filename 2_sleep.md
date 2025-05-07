@@ -125,7 +125,7 @@ We were not as “nice” and then needed to be more “talented” or burn in h
 
 There was more technology, more competitive energy, there were a lot of sports by the end of time. 
 
-Jesus may have wanted us then to not play sports. To instead get on the same page as God, who can communicate with you if you believe in “walking after the cross”, and then we can all create a “magical hierarchy” all playing our defined roles. 
+Jesus may have wanted us in Year 0 to not play sports. To instead get on the same page as God, who can communicate with you if you believe in “walking after the cross”, and then we can all create a “magical hierarchy” all playing our defined roles. 
 
 We didn’t really get another big update from God since then (2000 years). The next update was just going to be Heaven or Hell.
 
