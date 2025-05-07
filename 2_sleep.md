@@ -131,24 +131,15 @@ We didn’t really get another big update from God since then (2000 years). The 
 
 By 2001, it was The Devil who had learned more charm. He was more a “skater boy, rockstar persona” and not the horned devil. And he was projected to take over, and send most of us to hell burning forever if he didn’t like you. 
 
-
-
-He took the stance in 2001 that we are all just addicts for 2 sides (all humans), and I’m just the first one who called “my shot” and now I’m taking over forever. 
+He took the stance in 2001 that we are all just addicts for 2 sides (all humans), and *I’m just the first one who called “my shot” and now I’m taking over forever.*
 
 It was very explicitly saying humanity will never get pi in the context of circular time. Our whole social mindset will then be slamming 2 sides. Like a sports game. Like a rock concert. 
 
 It’s just too much fun, he argues, being a human animal. 
 
-
-
 That was then the world we were living in. We were asleep. 
 
-
-
-____
-
-
-
+##
 
 It’s determined all reasons we sleep are alpha/beta decisions. 
 
