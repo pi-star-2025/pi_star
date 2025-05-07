@@ -74,9 +74,7 @@ The decisions are both mathematical trees as well as “way of seeing” choices
 
 Some of these choices are made by “family”
 
-
-
-These spirals are a 4d version of our 3d ATCG genetic maps.
+These selection spirals are a 4d version of our 3d ATCG genetic maps.
 
 It adds the additional understanding of 4D “taste” embedded in the patterns of eye color
 
