@@ -159,7 +159,7 @@ Believe it or not, there are rotating cosmic social circles *living* in our eyes
 
 It’s said if we ever understood this, and understood the third eye was like a spider, with 8 possibilities.
 
-We would fulfill the original prophecy by our goddess in creating the spider. And also human third eye when she dropped us down from the clouds (the nose is the "first bone").
+We would fulfill the original prophecy by our goddess in creating the spider. And also the human third eye when she dropped us down from the clouds (the nose is the "first bone").
 
 If you understand this and slow down the 3 decisions at once, as breath and light bouncing between the eyes, it connects to every mushroom in the world, and together they will all project it’s the end of time. 
 
