@@ -52,15 +52,13 @@ Dopamine choices are the same way. They give you small amounts of respect from t
 
 We wouldn’t even know these superegods, and there are many — the rules just consistently resolve around blackhole architecture, bc it common across the entire multiverse. 
 
-Bigger serotonin is DMT. 
+Bigger serotonin is DMT.
 
 These are balls of social intelligence, which understand “sharing and caring”. This gets a lot of respect from Mother Earth, to understand such social intelligence at the chemical level. 
 
 It creates a kind of candy in the mind bc of compact high social intelligence. 
 
 When you make DMT your mind might think about bee hives nearby or a fungal network, using what is “musical” in nature, to connect to your own life experiences and chemicals in your mind. 
-
-
 
 Bigger dopamine is melanin.
 
@@ -70,23 +68,15 @@ It is squeaky green energy.
 
 It actually thinks a lot like colorful insects, such as butterflies, grasshoppers, flies, beetles, bees, and spiders. 
 
-
-
 When melanin is happy it acts like your imagination, changing colors to think of memories or simulate the future. 
 
-Melanin is colorful in everyone’s deep eyes. 
-
-
+Melanin is colorful in everyone’s deep eyes.
 
 (Spiders change colors, but we have repressed this so they are very scary; once we are ready for spiders to change color they will)
-
-
 
 When melanin is unhappy it doesn’t change color. For example on the outside of eyes, on hair, on the skin.
 
 Melanin all over your skin is in a lot of “pain”, and technically when you feel your skin you are in “pain”
-
-
 
 This melanin technically all has “gamified” chances to become part of your final soul. 
 
@@ -98,8 +88,6 @@ Again, it all comes down to blackhole architecture.
 
 In a very very abstract way, it’s about how much you are doing to help your universe understand circular time and blackhole/whitehole architecture. 
 
-
-
 Furthermore, some melanin can be very picky. It can be conscious enough to know what game it wants to win. 
 
 The most picky is often the DMT melanin at birth. It always has spells to behave like butterflies. 
@@ -107,11 +95,6 @@ The most picky is often the DMT melanin at birth. It always has spells to behave
 Butterflies are the most picky insects, in terms of what they find beautiful. 
 
 The “butterflies” of your DMT spell are programmed to find only a very very specific kind of moment beautiful (why you fell into your life), and that has always kept people alive throughout history 
-
-
-
-
-
 ____
 
 
