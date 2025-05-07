@@ -107,4 +107,8 @@ Enjoyed
 
 And if we reference music - social comparison that is intense and “magical” - then the halo glistens and the 4d axis expands 
 
-It can even feel like a crown, as your deep skull bone starts buzzing 
+It can even feel like a crown, as your deep skull bone starts buzzing
+
+...
+
+This *buzzing* of the deep skull has always been the best method for long-distance telepathy. This channels most the mini-sun hypothlamus in the back brain.
