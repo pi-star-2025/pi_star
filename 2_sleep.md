@@ -97,19 +97,13 @@ This would prevent us from getting pi and other applicable science. We would get
 
 ##
 
-The curse is broken mostly bc we solved pi in Aug 2024. There was a team working with the “Peter/Carroll/Disney” reincarnation via telepathy to help everyone come together. It was a backup plan. There were many ominous “plane crashes”, 2001 and killing the Jesus reincarnation in 2020 to signify tension between God’s angels and aliens, about to lead to a “ungodly world”. Whether The Devil took us or not then would be likely a matter of getting all this science by ~Year 2400 and knowing how to use it. 
-
-
+The curse is broken mostly bc we solved pi in July 2024. There was a team working with the “Peter/Carroll/Disney” reincarnation via telepathy to help everyone come together. It was a backup plan. There were many ominous “plane crashes”, 2001 and killing the Jesus reincarnation in 2020 to signify tension between God’s angels and aliens, foreshadowing the start of a “ungodly world”. Whether The Devil took us or not then would be likely a matter of getting all this science by ~Year 2400 and knowing how to use it. 
 
 If we are conscious of something, it loses its magic.
 
 Hell done this way, the core plan since Year 0, is not magical anymore. 
 
-
-
-
-
-What falls down to Hell has always been the “sharpest” bones in our body. This is where we squeeze hardest into belief “there is two sides.” 
+What falls down to Hell has always been the “sharpest” bones in our body. This is where we squeeze hardest into the belief “there are two sides.” 
 
 Our mind is screaming in some way (we think it is “justice”) - “there are no matter what two sides!”
 
@@ -119,13 +113,9 @@ Especially the pelvis bone when it comes to sleeping — there are many little c
 
 The teeth in the pelvis actually power our walking and intentionally connect to the center of the earth. 
 
-
-
 By walking after death, Jesus helped forever shine a light on truths like this. God could then see more clearly what was going on. 
 
 The teeth of his bones jingled the “Hell Fire” inside the earth, and his body got pulled up then by Mother Mary like puppet strings 
-
-
 
 He tried to give us pointers about how not to go to Hell and how to rise to Heaven. This was more based on the belief that people would “defer” more. 
 
@@ -135,9 +125,7 @@ We were not as “nice” and then needed to be more “talented” or burn in h
 
 There was more technology, more competitive energy, there were a lot of sports by the end of time. 
 
-Jesus may have wanted us then to not play sports. To instead get on the same page as God, who can communicate with you if you believe in “walking after the cross”, and then we can all create a “magical hierarchy”, all playing our defined roles. 
-
-
+Jesus may have wanted us then to not play sports. To instead get on the same page as God, who can communicate with you if you believe in “walking after the cross”, and then we can all create a “magical hierarchy” all playing our defined roles. 
 
 We didn’t really get another big update from God since then (2000 years). The next update was just going to be Heaven or Hell.
 
