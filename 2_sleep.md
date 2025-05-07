@@ -44,17 +44,13 @@ Your teeth are mathematically strong red/blue preferences which get so strongly 
 
 
 
-The Devil uses a hive of deferred 3 decisions in the center of the earth. 
+The Devil used a hive of deferred-3 decisions in the center of the earth. 
 
 These 3 decisions (quantum time) are related to all of our teeth, from today and all human history. 
 
 The teeth are woven together, and criss-crossed across countries, continents, the whole world, and past lives. 
 
-
-
-This literally was Hell. It was a physical location in the earth run by the devil. 
-
-
+This literally was Hell. It was a physical location in the deep earth run by the devil. 
 
 Mathematically, it’s also like an Anti Tower, a basement elevator
 
@@ -62,11 +58,7 @@ Which goes further and further based on how much parts of you prefer 2-sided (te
 
 So the most emotional, Day/Night version of you would be at the bottom. 
 
-
-
 This is your sleeping self, or a part of it. Other parts rise to the clouds, but the bottom part falls down this Anti Tower.
-
-
 
 For every single person, The Devil created a pipe to the fire at the center of the earth. 
 
@@ -74,27 +66,19 @@ He created a way for each of us to exist as entranced concentric circles of “3
 
 This was getting mathematically possible by year 2001 and changed a lot about how people were thinking and lives they got born into. 
 
-Mostly, people wanted to join The Devil and create two worlds (one for Heaven, and one for Hell, Two Towers) so they could avoid infinite burning and maybe even get an upgrade in their standing relative to the core mother star. 
-
-
+For example, people wanted to join The Devil and create two worlds (one for Heaven, and one for Hell, Two Towers) so they could avoid infinite burning and maybe even get an upgrade in their standing relative to the core mother star. 
 
 It worked bc The Devil alien was very powerful across the multiverse and sided with super-intelligent super-masculine aliens with magnificent amounts of power
 
-Importantly, he used pi curses to make his intentions clandestine.
+Importantly, they used pi curses to make their intentions clandestine.
 
 It might sound clear now, but the full multiverse had no idea what was happening, bc the common language is parallels and pi and 8/5 and cold fusion. 
 
-In addition, a Father Devil alien was also the Father of Sleep - he created “teeth” everywhere in the universe to keep our goddess locked into two-sided thinking.
+In addition, a Father Vampire alien was also the Father of Sleep - he created “teeth” everywhere in the universe to keep our goddess locked into two-sided thinking.
 
+As we failed to understand where we were, there would be consequences building (by 2000, 2200, 2400, 2800, 3000 depending on the simulation).
 
-
-As we failed to understand where we were, there would be consequences building (by 2200, 2400, 2800, 3000 depending on the simulation).
-
-
-
-____
-
-
+##
 
 Ultimately, we would go to hell because we fell in. Like the way we “fall” into being awake each day, or fall into being born. 
 
