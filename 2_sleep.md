@@ -19,7 +19,7 @@ During the nighttime, its consciousness is much heavier in the center earth, ver
 
 So during the nighttime, the consciousness of earth “falls apart” and our consciousness "falls apart" in sync.
 
-Then during the daytime The Earth is focused on whatever we are focused on, mostly live social circles and any deferred-3 memories still spinning in the clouds, which can be hundreds of years old.
+Then during the daytime the earth is focused on whatever we are focused on, mostly live social circles and any deferred-3 memories still spinning in the clouds, which can be hundreds of years old.
 
 ##
 
