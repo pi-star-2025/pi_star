@@ -30,7 +30,7 @@ It’s said the strongest pull down comes from The Devil, an evil alien from a l
 
 It’s said he even helped put Jesus on a cross, to emphasize why we he thought we would always be in pain
 
-Because we wouldn’t think in circular ways (like 3 and pi); we would only think in strong two-sided way like bone. 
+Because we wouldn’t think in circular ways (like 3 and pi); we would only think in strong two-sided ways like bone. 
 
 Bone is like ice or cocoons, it’s very mathematical and based on long strong 2-way thinking
 
