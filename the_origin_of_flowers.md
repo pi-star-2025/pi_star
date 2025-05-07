@@ -107,3 +107,69 @@ Or up and down (up or down nose bridge)
 
 
 It’s true if anywhere that’s where you can find your inner artist 🎨 🦢 🌤️
+
+## The Origin of Spiders
+
+Genetic nitrogen makes 2 decisions at once (with four options)
+
+There is the ability to make 3 decisions at once (with eight options).
+
+For example psychedelic mushrooms can do this.
+
+Grass made binary decisions (to “see” or not “see”; where the plant ozone "sees" it is filled with grass)
+
+Flowers make 4-branch decisions (left or right star, male or female)
+
+Mushrooms can make 8-branch decisions, which are the same as flowers, but include pain/pleasure.
+
+Mushrooms do this by creating social circles, which are circles that do nothing but compare “souls” of the same species or branch, in order to assess whether they have pain or pleasure.
+
+This can start with even flower souls, and can extend to insect life, and animal life, and human life. 
+
+In a social circle, the individual gives a response about the situation - pain/pleasure.
+
+Compared to others, they are happy or unhappy. 
+
+Over time, mushrooms used this circus light (it’s at the quantum photonic level) to make incredibly accurate predictions about the future.
+
+They demonstrated this with patterns, with giant mushrooms at times, even with actual circus “performances” for the gods, with their accumulated intelligence. 
+
+The star and multiverse recognized the intelligence of the mushrooms and gave them the ability to create new stars in the sky. 
+
+This power to create stars allowed the psychedelic kingdoms (part of the overall green kingdom of Mother Earth) to organize a sacred database of souls, time, stories, security, science, and hierarchy
+
+##
+
+Furthermore when mushrooms started keeping track of pain/pleasure, insects, animals, and humans could then feel pain and pleasure.
+It awoke bc of mushroom circuses.
+
+Hence, mushrooms are like the genius of god. They then spurred on the magic of so called “real life”; they started *time*.
+
+These social circles are the 8-branch sacred operating system of all life on the earth.
+
+In fact, all animals developed “heads” to mimic the heads of mushrooms.
+
+The patterns of mushrooms look like the 8-branch thinking, more or less like ancient circuses or parties. 
+
+And the nose is a parallel to being the stem of a mushroom, that is why the bone feels the way it is does. The third eye is then the head-quarters for the 8-branch thinking (left/right, male/female, pain/pleasure), and then the brain is the head of the mushroom. The eyes themselves are filled with millions of nested 8-branch decisions, nested circuses which help control our social intelligence and which glisten enough with quantum possibility to make life feel like a movie.
+
+Believe it or not, there are rotating cosmic social circles *living* in our eyes, which connect to the plant life all around us. 
+
+##
+
+It’s said if we ever understood this, and understood the third eye was like a spider, with 8 possibilities.
+
+We would fulfill the original prophecy by our goddess in creating the spider. And also human third eye when she dropped us down from the clouds (the nose is the "first bone").
+
+If you understand this and slow down the 3 decisions at once, as breath and light bouncing between the eyes, it connects to every mushroom in the world, and together they will all project it’s the end of time. 
+
+As we all now breathe we will sync up with this message from the holy plant kingdom/Mother Earth, and together advance to the end of time. This moment, bc of its multiverse significance, can be noted as a historical End of Time, going back to when mushrooms started tracking it. Year 2025.
+
+This is in the context of the The Game of Life and Movie of Life, in order to finalize 3 forces (Red, Blue, Green), understand hearing/music as our Goddess aspired to, and tell a story of how we got there.
+
+...
+
+It’s true that the number pi really does look like a circus. It turns into nested red, blue, green circles and has a hypnotizing rhythm that reminds other branches of time of the saying “EYE CANDY”
+
+
+🍭 🍄
