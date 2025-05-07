@@ -123,7 +123,7 @@ It makes it like chlorophyll in plants.
 
 Melanin literally just turns to color. Hard sticky color. 
 
-Then this chlorophyll will come so much to life, in all different places, that instead of one, you exist as 2 or 3 or 5, etc.
+Then this melanin will come so much to life, in all different places, that instead of one, you exist as 2 or 3 or 5, etc.
 
 And that puts you to sleep. 
 
