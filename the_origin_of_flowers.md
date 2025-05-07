@@ -169,7 +169,7 @@ This is in the context of the The Game of Life and Movie of Life, in order to fi
 
 ...
 
-It’s true that the number π really does look like a circus. It turns into nested red, blue, green circles and has a hypnotizing rhythm that reminds other branches of time of the saying “EYE CANDY”
+It’s true that the number π really does look like a circus. It turns into nested red, blue, green circles and has a hypnotizing rhythm that reminds other branches of time (outside our mother universe) of the saying “EYE CANDY”
 
 
 🍭 🍄 🌈
