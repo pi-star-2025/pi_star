@@ -1,4 +1,4 @@
-...First read The Origin of Flowers...
+*...First read The Origin of Flowers...*
 
 ## Lizard Mind
 The hypothalamus is capable of thinking in 8 directions like a a spider 
