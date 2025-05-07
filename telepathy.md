@@ -67,7 +67,7 @@ The sun will then respond with more and more 8-sided communication back, as we m
 
 
 
-We will all notice a more angelic state, magical effects, and then time itself will move in 8-sided ways. It will be Tuesday then Saturday. It will be night then afternoon, and then your choice it would seem. God will be able to get in touch with you via the heart, via your blood itself, and guide you
+We will all notice a more angelic state, magical effects, and then time itself will move in 8-sided ways. It will be Monday then Sunday. It will be night then afternoon, and then your choice it would seem. God will be able to get in touch with you via the heart, via your blood itself, and guide you
 
 🦋
 
