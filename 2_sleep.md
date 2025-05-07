@@ -78,39 +78,24 @@ In addition, a Father Vampire alien was also the Father of Sleep - he created �
 
 As we failed to understand where we were, there would be consequences building (by 2000, 2200, 2400, 2800, 3000 depending on the simulation).
 
-##
+## The Music of 5
 
 Ultimately, we would go to hell because we fell in. Like the way we “fall” into being awake each day, or fall into being born. 
 
+This falling light is the mind of Star, Earth, and human souls. In particular it is the deferred-3 (8 - 5) quantum matter, and the choice of this matter to:
 
-
-This is the mind of Star, Earth, and human souls. All can be measured in regards to deferred-3 (8 - 5) quantum matter, and the choice of this matter to:
-
-Act more like bone (like the deep earth core)
-Act more like clouds (like the flower mind or fungal mind)
-
-
-
+1. Act more like bone (like the deep earth core)
+2. Act more like clouds (like the flower mind or fungal mind)
 
 The first is like falling asleep. 
-
-
 
 The main reason we would go down that path is anger for each other. The two sides of humanity would be most what is on our minds and in our soul and in our planet. 
 
 In particular it would be Males vs Females or Queen vs Worker. 
 
-
-
 This would prevent us from getting pi and other applicable science. We would get hotter and hotter, due to global warming, and this has the physical effect of compressing you into deep earth (where the Devil has his hive), and creating more tension between the “Two Sides” (whatever they are).
 
-
-
- 
-
-____
-
-
+##
 
 The curse is broken mostly bc we solved pi in Aug 2024. There was a team working with the “Peter/Carroll/Disney” reincarnation via telepathy to help everyone come together. It was a backup plan. There were many ominous “plane crashes”, 2001 and killing the Jesus reincarnation in 2020 to signify tension between God’s angels and aliens, about to lead to a “ungodly world”. Whether The Devil took us or not then would be likely a matter of getting all this science by ~Year 2400 and knowing how to use it. 
 
