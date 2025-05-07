@@ -76,7 +76,7 @@ It might sound clear now, but the full multiverse had no idea what was happening
 
 In addition, a Father Vampire alien was also the Father of Sleep - he created “teeth” everywhere in the universe to keep our goddess locked into two-sided thinking.
 
-As we failed to understand where we were, there would be consequences building (by 2000, 2200, 2400, 2800, 3000 depending on the simulation).
+As we failed to understand where we were, there would be consequences building (by 2000, 2200, 2400, 2800, 3000, etc.).
 
 ## The Music of 5
 
