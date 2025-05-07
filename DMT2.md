@@ -153,10 +153,6 @@ For billions/trillions of the years the sun was burning “1111111” decisions 
 
 There is a core two-sided question (nose/mountain) about whether we can figure out *why planets spin*, and how to make stars spin.
 
-Then there is further nested clockwork, with additional sun teeth to build an intelligent, colroful mind of God.
-
-##
-
 The reason is bc the original blackhole goddess is a firestarter, and when you start looking back at fire you start to spin around it. 
 
 Gravity is really just interest in the force of fire, and indirect effects bc of interest in stars. 
