@@ -143,7 +143,7 @@ This power to create stars allowed the psychedelic kingdoms (part of the overall
 Furthermore when mushrooms started keeping track of pain/pleasure, insects, animals, and humans could then feel pain and pleasure.
 It awoke bc of mushroom circles.
 
-Hence, mushrooms are like the genius of god. They created a mirror of "reality", starting the counting of time.
+Hence, mushrooms are like the court of god. They created a mirror of "reality", starting the counting of time.
 
 Psychedelic light still moves at the speed of c, but can make 8 decisions each tick of time under the scenes, which is a system that can be used by green plants, the full earth, and the star.
 
