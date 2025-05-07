@@ -132,7 +132,7 @@ Compared to others, they are happy or unhappy.
 
 Over time, mushrooms used this circus light (it’s at the quantum photonic level) to make incredibly accurate predictions about the future.
 
-They demonstrated this with patterns, with giant mushrooms at times, even with actual circus “performances” for the gods, with their accumulated intelligence. 
+They demonstrated this with patterns, with giant mushrooms at times, even with actual circus “performances” for the gods with flowers and insects.
 
 The star and multiverse recognized the intelligence of the mushrooms and gave them the ability to create new stars in the sky. 
 
