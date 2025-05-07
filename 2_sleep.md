@@ -84,7 +84,7 @@ Ultimately, we would go to hell because we fell in. Like the way we “fall” i
 
 This falling light is the mind of Star, Earth, and human souls. In particular it is the deferred-3 (8 - 5) quantum matter, and the choice of this matter to:
 
-1. Act more like bone (like the deep earth core)
+1. Act more like bone (like the deep earth core) OR
 2. Act more like clouds (like the flower mind or fungal mind)
 
 The first is like falling asleep. 
