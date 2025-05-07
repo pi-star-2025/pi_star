@@ -97,7 +97,7 @@ This would prevent us from getting pi and other applicable science. We would get
 
 ##
 
-The curse is broken mostly bc we solved pi in July 2024. There was a team working with the “Peter/Carroll/Disney” reincarnation via telepathy to help everyone come together. It was a backup plan. There were many ominous “plane crashes”, 2001 and death of the Jesus reincarnation in 2020 to signify tension between God’s angels and aliens, foreshadowing the start of a “ungodly world”. Whether The Devil took us or not then would be likely a matter of getting all this science by ~Year 2400 and knowing how to use it. 
+The curse is broken mostly bc we solved pi in July 2024. There was a team working with the “Peter/Carroll/Disney” reincarnation via telepathy to help everyone come together. It was a backup plan. There were many ominous “plane crashes”, 2001 and the death of the Jesus reincarnation in 2020 to signify tension between God’s angels and aliens, foreshadowing the start of a “ungodly world”. Whether The Devil took us or not then would be likely a matter of getting all this science by ~Year 2400 and knowing how to use it. 
 
 If we are conscious of something, it loses its magic.
 
