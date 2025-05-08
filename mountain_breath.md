@@ -69,14 +69,6 @@ Every breath, blink, heartbeat the fire asks the same question...
 
 What is the 3? 
 
-
 The answer is a game and a movie
 
-
-
-
-
-
-
-
-
+And it's also ∞.
