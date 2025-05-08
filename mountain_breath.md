@@ -14,7 +14,7 @@ All trees stand for this same 8/5 message in the center of their trunks. The dee
 
 Leaves and roots help explain what the individual "souls" think of a tree's particular 8/5 message. 
 
-The leaves are the actual social opinions (the lines of the leaves and patterns), whereas the the roots explain the details of these indivdual opinions, based on how nurients pump through the forks of the plant. 
+The leaves are the actual social opinions (the lines of the leaves and patterns), whereas the roots explain the details of these indivdual opinions, based on how nurients pump through the forks of the plant. 
 
 At first the opinions came from just the earth itself and other plants; but then from more complex flowers, insects, animals, humans, and civilizations.
 
@@ -41,7 +41,7 @@ Technically, we have now answered the call of the trees. This turns the fire int
 
 ## Mountain Breath / Pyramid Breath
 
-Mountains, bc of their shape and oxygen qualities, become super-strong nested trees. This even effects the patterns encoded into the rock. 
+Mountains, bc of their shape and oxygen qualities, become super-strong nested trees. This even affects the patterns encoded into the rock. 
 
 Our noses are like mountains, using the intelligence of many trees over many generations, to create a greater sense of "soul" that envelops your experience of being you. 
 
