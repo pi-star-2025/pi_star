@@ -30,7 +30,7 @@ All actual sensations (everything except “hearing”) is from these blue 4s.
 
 ## Green_Noise
 
-The soul is when blue squares “see” green noise. To the squares the earth looks like eye-candy mirrors, and they fall into understanding these were decisions to “hear”. Because now then they are 5’s (pentagons) with more consciousness and really think the colors were noise. 
+The soul is when blue squares (4's) “see” (1) and fall into being green noise (5's). To the squares the earth looks like eye-candy mirrors, and they fall into understanding these were decisions to “hear”. Because now that they are 5’s (pentagons) with more consciousness they really think the colors were noise. 
 
 Green pentagon represents the 5 in π.
 
