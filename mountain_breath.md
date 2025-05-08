@@ -35,8 +35,9 @@ The nose breath has three parts:
 2. The wood or spine, which is the nose bone. Ultimately, the human mind criss-crosses the lines of trees in the area and over time to find a way to stand for the same thing: 8/5. 8/5 is time, soul, and magic. Humans have each found their own way like trees to stand for this message. This becomes all the branches of thought in your brain; it's encoded also in the lines of the nose bone.
 3. The trunk is the third eye. This channels the fire in the center of the earth. It's crunched together with 8/5 patterns that get the attention of the center of the earth. For trees this powers them up, for humans this powers them down, into being bones and awake and walking.
 
+In fact for humans, the third-eye fire has one core purpose. Explain 8/5 with the human mind. This is the fire waking up all our minds into being reverse trees. 
 
-
+Technically, we have now answered the call of the trees. This turns the fire into a "celebration" if you slow it down lasering down your nose and spine. 
 
 
 
