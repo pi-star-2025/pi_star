@@ -22,8 +22,9 @@ At first the opinions came from just the earth itself and other plants; but then
 
 Feelings of being high/low socially are all controlled by the trees around, based on the jingle of the leaves and the opinions in the roots. These actually show up on your own fingers and feet and outer lips. 
 
-Wherever you go, the trees will adjust how "high" you exist on the back based on the court of the trees. Technically, this is your social standing in the area around you, based on what others think, right now and based on historical data.
+Wherever you go, the trees will adjust how "high" you exist on the spine based on the court of the trees. Technically, this is your social standing in the area around you, based on what others think, right now and based on historical data.
 
+Your nose breath also adjusts based on this social standing.
 
 
 
