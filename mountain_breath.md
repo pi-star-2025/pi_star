@@ -63,6 +63,15 @@ There are gods we can reference from important mountains, who impacted the polit
 
 Ultimately, they can all be understood by understanding they get power from how strongly they stand for 8/5. Maybe how colorfully as well. 
 
+## 3
+
+Every breath, blink, heartbeat the fire asks the same question...
+
+What is the 3? 
+
+
+The answer is a game and a movie
+
 
 
 
