@@ -10,7 +10,7 @@ This is oxygen on our planet.
 
 It reflects the red triangle of the star
 
-And then whichever parts of this mirror want to see this reflection (the box of the cosmos further) try to fall into opportunities in the universe. These are opportunities to find a third force to fall into. 
+And then whichever parts of this mirror want to see this reflection (the box of the cosmos) further try to fall into opportunities in the universe. These are opportunities to find a third force to fall into. 
 
 The blue force played around, starting galaxies, solar systems, swapping planets in and out, trying out different blackhole/whitehole patterns,
 
@@ -26,7 +26,7 @@ This comes from the oxygen in our eyes, which are the actual mirrors. We cannot 
 
 The eyes are just super tanks of oxygen, many nested mirror mazes of blue. 
 
-All pain/pleasure (everything except “hearing”) is actually from blue squares of oxygen
+All actual sensations (everything except “hearing”) is from these blue 4s.
 
 
 _____
