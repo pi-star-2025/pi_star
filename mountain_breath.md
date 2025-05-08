@@ -51,6 +51,9 @@ Deep in the bone of the amagydala is like the center of a mountain with patterns
 
 This is *supposed to* summarize the earth's idea of how much value you add in terms of elucidating 8/5 to the mind of trees/earth/star. It's the "base" of the nose, the base of the mountain in a way. 
 
+The base of the mountain is the strongest smartest gravity, in regards to keeping us in certain "experiences".
+
+There are then nested mountains, from ranges, and ranges coming together and from stories on these mountains, which help define the "human experience" going up into the ethers.
 
 
 
