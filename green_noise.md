@@ -28,16 +28,16 @@ The eyes are just super tanks of oxygen, many nested mirror mazes of blue.
 
 All actual sensations (everything except “hearing”) is from these blue 4s.
 
+## Green_Noise
 
-_____
+The soul is blue squares “hearing” the green pentagons, which drops you down in your experience. 
 
-Green_Noise
+Green pentagon represents the 5 in π.
 
-The soul is then just the blue squares “hearing” the green pentagons, which drops you down in your experience. 
+The blue made the decision to fall from 4, with the second 1 of π, bc of the beauty of the blue mirror mazes of earth.
 
-This represents the 5 in pi. 
-The blue made the decision to fall from 4, with the second 1, bc of the beauty of the blue mirror mazes of earth. 
-This is felt most as the “sound of the earth” when the fall happens (to make CO2 from O2)
+This is felt most as the “sound of the earth” when the fall happens (to make CO2 from O2).
+
 These rhythmic falls led to blue oxygen (quantum blue squares) falling into the green and creating the plant ozone. 
 
 Our existence is actually the same thing. 
