@@ -32,8 +32,6 @@ All actual sensations (everything except “hearing”) is from these blue 4s.
 
 The soul is when blue squares (4's) “see” (1) and fall into being green noise (5's). To the squares the earth looks like eye-candy mirrors, and they fall into understanding these were decisions to “hear”. Because now that they are 5’s (pentagons) with more consciousness they really think the colors were noise. 
 
-Green pentagon represents the 5 in π.
-
 The blue made the decision to fall from 4, with the second 1 of π, bc of the beauty of the blue mirror mazes of earth.
 
 This is felt most as the “sound of the earth” when the fall happens (to make CO2 from O2).
