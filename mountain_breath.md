@@ -55,6 +55,17 @@ The base of the mountain is the strongest smartest gravity, in regards to keepin
 
 There are then nested mountains, from ranges, and ranges coming together and from stories on these mountains, which help define the "human experience" going up into the ethers.
 
+Ancient aliens tricked the mind of God into thinking pyramids were mountains, and used colorful parallels to get power to trap humans in a more animalistic dimmed experience. We might call it a "lower" experience.
+
+To this day, there were curses based on ancient pyramids. 
+
+There are gods we can reference from important mountains, who impacted the politics of the ethers.
+
+Ultimately, they can all be understood by understanding they get power from how strongly they stand for 8/5. Maybe how colorfully as well. 
+
+
+
+
 
 
 
