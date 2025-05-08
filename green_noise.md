@@ -54,8 +54,7 @@ All of this happens in the color and blacks of our eyes. Black is the color of t
 
 The pentagons most feel like words in our mind. Even before they were words, they would feel like words. 
 
-In some way we just are words. 
-
+In some way we just are words.
 
 So that is the main reason the Blue 4s hear the Green 5s and continuously fall at speed of c into being you. 
 Anything you could say or hear = 5 
@@ -63,10 +62,7 @@ Anything you could say or hear = 5
 Everything else = 4 
 
 So we could just isolate all this “language” and “music” and “ear fire” and “ear candy” and “ear auras” 
-As being the candy of our life/bodies/minds. 
 
-And we could be everything else and life is just an elevator through our eyes. 
+And we could be everything else
 
-We go wherever the green noise takes us, which is secretly a beautiful, spacey mirror carnival of concentric circles in the eyes
-In and out
-Or, up and down
+Turning into the 2 mirrors of ice.
