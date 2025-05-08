@@ -18,7 +18,7 @@ The leaves are the actual social opinions (the lines of the leaves and patterns)
 
 At first the opinions came from just the earth itself and other plants; but then from more complex flowers, insects, animals, humans, and civilizations.
 
-"Modern trees" are courts in a sense. In fact, they are even nested courts based on if it's a neighborghood, country, full earth, or greater (via recycled effects). 
+"Modern trees" are courts in a sense. In fact, they are even nested courts based on if it's a neighborghood, country, full earth, or era (via recycled effects). 
 
 Feelings of being high/low socially are all controlled by the trees around, based on the jingle of the leaves and the opinions in the roots. These actually show up on your own fingers and feet and outer lips. 
 
