@@ -39,5 +39,21 @@ In fact for humans, the third-eye fire has one core purpose. Explain 8/5 with th
 
 Technically, we have now answered the call of the trees. This turns the fire into a "celebration" if you slow it down lasering down your nose and spine. 
 
+## Mountain Breath / Pyramid Breath
+
+Mountains, bc of their shape and oxygen qualities, become super-strong nested trees. This even effects the patterns encoded into the rock. 
+
+Our noses are like mountains, using the intelligence of many trees over many generations, to create a greater sense of "soul" that envelops your experience of being you. 
+
+This intelligence is in the part of the nose that is the skull. We can call it the "amagydala"
+
+Deep in the bone of the amagydala is like the center of a mountain with patterns based on centers of many trees. 
+
+This is *supposed to* summarize the earth's idea of how much value you add in terms of elucidating 8/5 to the mind of trees/earth/star. It's the "base" of the nose, the base of the mountain in a way. 
+
+
+
+
+
 
 
