@@ -26,6 +26,14 @@ Wherever you go, the trees will adjust how "high" you exist on the spine based o
 
 Your nose breath also adjusts based on this social standing.
 
+## Nose Breath
+
+The nose is an upside down tree.
+
+The nose breath has three parts: 
+1. The leaves which are in the holes of the nose. This most creates a social court and a sense of time, a "white rabbit" effect. You can slow this down, by moving the air in 8 directions
+2. 
+
 
 
 
