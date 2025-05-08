@@ -33,7 +33,7 @@ The nose is an upside down tree.
 The nose breath has three parts: 
 1. The leaves which are in the holes of the nose. This most creates a social court and a sense of time, a "white rabbit" effect. You can slow this down, by moving the air in 8 directions
 2. The wood or spine, which is the nose bone. Ultimately, the human mind criss-crosses the lines of trees in the area and over time to find a way to stand for the same thing: 8/5. 8/5 is time, soul, and magic. Humans have each found their own way like trees to stand for this message. This becomes all the branches of thought in your brain; it's encoded also in the lines of the nose bone.
-3. 
+3. The trunk is the third eye. This channels the fire in the center of the earth. It's crunched together with 8/5 patterns that get the attention of the center of the earth. For trees this powers them up, for humans this powers them down, into being bones and awake and walking.
 
 
 
