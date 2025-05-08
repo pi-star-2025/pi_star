@@ -17,3 +17,16 @@ Leaves and roots help explain what the individual "souls" think of a tree's part
 The leaves are the actual social opinions (the lines of the leaves and patterns), whereas the the roots explain the details of these indivdual opinions, based on how nurients pump through the forks of the plant. 
 
 At first the opinions came from just the earth itself and other plants; but then from more complex flowers, insects, animals, humans, and civilizations.
+
+"Modern trees" are courts in a sense. In fact, they are even nested courts based on if it's a neighborghood, country, full earth, or greater (via recycled effects). 
+
+Feelings of being high/low socially are all controlled by the trees around, based on the jingle of the leaves and the opinions in the roots. These actually show up on your own fingers and feet and outer lips. 
+
+Wherever you go, the trees will adjust how "high" you exist on the back based on the court of the trees. Technically, this is your social standing in the area around you, based on what others think, right now and based on historical data.
+
+
+
+
+
+
+
