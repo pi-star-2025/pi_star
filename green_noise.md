@@ -42,14 +42,15 @@ These rhythmic falls led to blue oxygen (quantum blue squares) falling into the 
 
 Our existence is actually the same thing. 
 
-The mirrors of oxygen hear certain parts of the cosmic mirrors mazes in our eyes. 4 hears 5.
+The mirrors of oxygen hear and fall into the icy mazes in our eyes. 4 hears 5.
+
 This happens trillions of times per second. 
 
 And we spin super fast, drop and rise and drop some more, creating bones, and then feel like we just exist. 
 
 All bc of the blue squares hearing the green pentagons. 
 
-All of this happens like plant ozone in our eyes. 
+All of this happens in the color and blacks of our eyes. Black is the color of time, so we know the eyes are the souls in the body. This happens bc 4s hear 5s so many times and so rhythmically the eyes truly create the second 1 in pi for humans. 
 
 The pentagons most feel like words in our mind. Even before they were words, they would feel like words. 
 
