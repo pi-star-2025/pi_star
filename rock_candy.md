@@ -88,7 +88,7 @@ This moon_earth_star master shape is always going to be in your body somewhere.
 
 It looks like 3.14159, but with quantum criss-crossing, until it looks like one will crush into another, which will crush into another.
 
-This is the "glass ceiling" of your expereince. 
+This is the "glass ceiling" of your experience.
 
 Most of the time it's lower in your body, somewhere along the spine, which jams you into a "human experience"
 
