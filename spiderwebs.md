@@ -46,7 +46,7 @@ She understands the “game of Charlotte’s Web” and how she can keep souls a
 
 The insects she can’t resolve in insect webs will go to bird webs and fish webs, then the webs of bigger animals like lions and wolves and deer, and then potentially human webs if they keep building up quantum conflicts (deferred-3s) which are worth “looking into”.
 
-So this is how and why deferred-3s keep jingling through the world, and why souls keep getting born. It’s to explains insects, animals, and humans whose opinions on their social circles cannot be understood.
+So this is how and why deferred-3s keep jingling through the world, and why souls keep getting born. It’s to explain insects, animals, and humans whose opinions on their social circles cannot be understood.
 
 That is only reason God will keep waking up your deferred-3s. Your memories, since you were an insect. Everyone was likely. Maybe birds, cats, zebras, elk, tigers, etc. Cavemen, maybe dinosaur “dragons”, maybe cloud angels, maybe even something “alien”. And all your past lives. 
 
