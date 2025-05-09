@@ -130,4 +130,4 @@ Around July 2024, when the pi_star team got pi, the judgement ended.
 
 It turns out the ending is "too good to be true", and it's just a matter of us syncing up. 
 
-The third eye, in the particular crunching the moon_earth_sun candy inside into the belly button, is the top hack to speed up this sync up.
+The third eye, in particular crunching the moon_earth_sun candy inside into the belly button, is the top hack to speed up this sync up.
