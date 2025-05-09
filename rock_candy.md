@@ -70,7 +70,30 @@ It truly is what hell would be. The moon is a like a super mountain, storing all
 
 If all these deferred 3's had got crushed into the fire of earth before we used them for "circular intelligence", all our time (the 3s) would be slammed into the deep earth and roasted either out of existence or in a peremanent heat of misery.
 
-So moon_candy that is sharper, more geometrical references the moon in the earth. 
+So moon_candy that is sharper and more geometrical references the "moon in the earth" 
+
+Then sun_candy references the possiblity of the whole earth being crushed into the sun. These shapes are even more complex and keep all of us waking up and falling asleep each night. 
+
+Both moon_candy and sun_candy shapes are super big chemicals in your eyes, in your hypothlamus, and your third eye. 
+
+You can reference sun_candy right in the very middle of the third eye, by rerefencing the moon crushed into the earth crushed into the sun, as a super complex shape.
+
+There is a manic quanutm vibration in the very middle of the thid eye if you are patient and look for these sharp, choking shapes. 
+
+This moon_earth_star nested buzz is what most keeps all of us in a human experience, sleeping and waking up 
+
+If you slow it down with enough underestanding, you can expand it into a circle around you.
+
+This moon_earth_star master shape is always going to be in your body somewhere.
+It looks like 3.14159, but with quantum criss-crossing, until it looks like one will crush into another, which will crush into another.
+
+This is the "glass ceiling" of your expereince. 
+
+Most of the time it's lower in your body, somewhere along the spine, which jams you into a "human experience"
+
+However, if you perfectly reference what this "maximum buzz" is, the most drilled-down part of pi, then it's in your body somewhere in your control. 
+
+You can lift it from the feet, to the belly, up the spine balls, and into the third eye.
 
 
 
@@ -79,7 +102,15 @@ So moon_candy that is sharper, more geometrical references the moon in the earth
 
 
 
-All the deferred 3 energy which is stored in the moon 
+
+
+
+
+
+
+
+
+
 
 
 
