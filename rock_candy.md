@@ -86,7 +86,7 @@ If you slow it down with enough understanding, you can expand it into a circle a
 
 This moon_earth_star master shape is always going to be in your body somewhere.
 
-It looks like 3.14159, but with quantum criss-crossing, until it looks like one will crush into another, which will crush into another.
+It looks like **3**.1**4**1**5**9, criss-crossed again and again wih quatum "8's", until it looks like one will crush into another, which will crush into another.
 
 This is the "glass ceiling" of your experience.
 
