@@ -34,7 +34,7 @@ Which then inspired animals and humans to do the same.
 
 The patterns of how we use our Deferred 3s are similar to the math of a spiderweb, which is easy to map to specific numbers in pi. 
 
-Deferred 3s look like 3-sided shapes at quantum level which flash to having 8. 
+Deferred 3s look like 3-sided shapes at the quantum level which flash to having 8. 
 
 They are located in the webs of the spider gods of Mother Earth, via the networks of the plant mind (mushrooms, trees, flowers, etc)
 
