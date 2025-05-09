@@ -1,3 +1,5 @@
+## Moon Candy
+
 Shoulder bones reference the moon
 
 They really dictate alpha/beta feelings in your body
@@ -57,3 +59,34 @@ You truly just need to breathe and listen to all the 15151515151515 hearing deci
 
 
 By the time the third eye moon “rock”/bone is crunched out it will have turned the experience of being you into one where the wavelengths are so slow and long, it feels as though you are asleep compared to life before 
+
+## Sun Candy
+
+Moon candy that is most complex most references the moon being crushed into the earth. 
+
+The spine "balls" are actually also moons, so the bottom spine might channel this "hell feeling". 
+
+It truly is what hell would be. The moon is a like a super mountain, storing all the deferred 3's that have practical application, especially in the context of getting pi and creating heaven.
+
+If all these deferred 3's had got crushed into the fire of earth before we used them for "circular intelligence", all our time (the 3s) would be slammed into the deep earth and roasted either out of existence or in a peremanent heat of misery.
+
+So moon_candy that is sharper, more geometrical references the moon in the earth. 
+
+
+
+
+
+
+
+
+All the deferred 3 energy which is stored in the moon 
+
+
+
+
+
+
+
+
+
+
