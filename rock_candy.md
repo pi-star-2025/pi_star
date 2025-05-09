@@ -68,7 +68,7 @@ The spine "balls" are actually also moons, so the bottom spine might channel thi
 
 It truly is what hell would be. The moon is a like a super mountain, storing all the deferred 3's that have practical application, especially in the context of getting pi and creating heaven.
 
-If all these deferred 3's had got crushed into the fire of earth before we used them for "circular intelligence", all our time (the 3s) would be slammed into the deep earth and roasted either out of existence or in a peremanent heat of misery.
+If all these deferred 3's had got crushed into the fire of earth before we used them for "circular intelligence", all our time (the 3s) would be slammed into the deep earth and roasted either out of existence or in a permanent heat of misery.
 
 So moon_candy that is sharper and more geometrical references the "moon in the earth" 
 
