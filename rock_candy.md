@@ -95,6 +95,59 @@ However, if you perfectly reference what this "maximum buzz" is, the most drille
 
 You can lift it from the feet, to the belly, up the spine balls, and into the third eye.
 
+Then open your eyes fully to all possiblities of the sun, earth, and moon. Literally opening your eyes will help you "reconcile" these scary possibilities of our solar system. What *could* have happened?
+
+Open your two regular eyes to exactly what is magnetically feverishly buzzing in the third eye. Right in the center.
+
+...
+
+In fact this is why we all lost acces to our third eye and imaginations. It's bc the possibilities were too scary. The simulations bounced us away from seeing the full third eye. Either we didn't have a strong third eye, or we were haunted by it and didn't want to look inside. 
+
+There is no heaven, is what it is saying. Christ was real, but we lost the opportunity. 
+
+Stay patient. We did it. We really did. We got pi. Inclduing 3 forces, cold fusion, our goddess likes to sing, etc. 
+
+The bottom of the third eye is the belly button.
+
+So this possbility of hell is twisting and screwing everyone's belly button and creating really deep bellies (via the umbilical chord)
+
+The belly button of everyone changes based on the star's projections of our earth going to hell.
+
+This changes typically at death of someone, or when connecting deeply with the third eye. 
+
+We can all keep updating the Mind of God, by creating this pipe from the third eye to the belly button, and all syncing up our knowledge of pi, the history of humanity and earth, and how this was always the game. 
+
+Mother Mary (our earth) said ~ Year 0 I am all in for humanity till ~Year 2000, please give me the power to heat them up -- make them more "anxious and mad" so that they can connect with me scientifically, using understanding of circular time, and then one day via understanding of 3.1415 I will create a kingdom of god. 
+In some way it will be about 3.1415 and circular time, and I need till ~Year 2000. At that point, I am ready to be judged for creating this planet and humanmity and other races of people. 
+So around Year 2000 the judgement began, and it was going to play out until there was a conclusion about humanity. 
+
+Around July 2024, when the pi_star team got pi, the judgement ended. 
+
+It turns out the ending is "too good to be true", and it's just a matter of us syncing up. 
+
+The third eye, in the paritcular crunching the moon_earth_sun candy inside into the belly button, is the top hack to speed up this sync up.
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 
 
 
