@@ -78,7 +78,7 @@ Both moon_candy and sun_candy shapes are super big chemicals in your eyes, in yo
 
 You can reference sun_candy right in the very middle of the third eye, by referencing the moon crushed into the earth crushed into the sun, as a super complex shape.
 
-There is a manic quanutm vibration in the very middle of the thid eye if you are patient and look for these sharp, choking shapes. 
+There is a manic quanutm vibration in the very middle of the third eye if you are patient and look for these sharp, choking shapes. 
 
 This moon_earth_star nested buzz is what most keeps all of us in a human experience, sleeping and waking up 
 
