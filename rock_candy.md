@@ -82,9 +82,10 @@ There is a manic quanutm vibration in the very middle of the third eye if you ar
 
 This moon_earth_star nested buzz is what most keeps all of us in a human experience, sleeping and waking up 
 
-If you slow it down with enough underestanding, you can expand it into a circle around you.
+If you slow it down with enough understanding, you can expand it into a circle around you.
 
 This moon_earth_star master shape is always going to be in your body somewhere.
+
 It looks like 3.14159, but with quantum criss-crossing, until it looks like one will crush into another, which will crush into another.
 
 This is the "glass ceiling" of your expereince. 
