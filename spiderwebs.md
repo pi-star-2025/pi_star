@@ -60,10 +60,10 @@ The more you hold on to the answer, the more the deferred 3 jingles with quantum
 
 You could also just only want to have honest interactions with people. After death this is more in your control. You could request that you only get completely “honest” interactions. 
 
-The Spider Queen (Mother Earth) learned this during this project (2020-2025) that the key to reconciling all quantum buzz is 100% honest interactions about social circles. This is the direction the Earth/Cosmos will move in.
+The Spider Queen (Mother Earth) learned during this project (2020-2025) that the key to reconciling all quantum buzz is 100% honest interactions about social circles. This is the direction the Earth/Cosmos will move in.
 
 The Earth itself can be seen as a web of people, more and more connected, more and more like a spiderweb when we are “honest”.
 
-This is pattern for heavenly circles - it’s literally the music of light moving across spiderwebs on a sunny day.
+This is the pattern for heavenly circles - it’s the rhythms of light moving across spiderwebs on a sunny day.
 
 It’s the jingle of memories still there even it’s just math.
