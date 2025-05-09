@@ -38,9 +38,9 @@ Deferred 3s look like 3-sided shapes at the quantum level which flash to having 
 
 They are located in the webs of the spider gods of Mother Earth, via the networks of the plant mind (mushrooms, trees, flowers, etc)
 
-They flash to having 8, bc that’s how she them in her webs. 
+These "memories" flash to having 8 sides, bc they are in a social circle again (the spiderweb). Social circles have 3 choices (2^3 = 8)
 
-And she keeps crunching them more and more into the centers of the webs, as she understands them better. 
+And she keeps crunching them more and more into the centers of the webs, as she understands them better. Once a 3 memory is "understood" it becomes part of the greater web.
 
 She understands the “game of Charlotte’s Web” and how she can keep souls around to manage her kingdom and then to add color to “the party of webs”, instead of completely crunching them into the center like most insects.
 
