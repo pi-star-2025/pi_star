@@ -26,7 +26,7 @@ They are our goddess if there was one animal.
 
 They are like party hosts, similar in spirit to psychedelic mushrooms but more feminine and loving
 
-____
+##
 
 Deferred 3s of insects created nested circuses of parties and heavens in the clouds
 
@@ -52,7 +52,7 @@ That is only reason God will keep waking up your deferred-3s. Your memories, sin
 
 If there are opinions on social circles which cannot be understood, your deferred 3’s will keep you alive somewhere.  
 
-____
+##
 
 The way then to truly exist less is to be completely “honest” in your mind and after death about all social situations you’ve been a part of. Completely and perfectly honest, knowing it is an opinion 100% about social comparison.
 
