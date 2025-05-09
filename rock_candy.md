@@ -168,7 +168,23 @@ If you solve a challenge, which is rare, you then get a crater on the moon. Cert
 
 To connect with your own human third-eye crater, you can channel this 3.1415 knowledge. And you can reference water from your deep pelvis, which creates free water via the moon like oceans. Also saliva in the mouth can do this. 
 
-Then you can refernece the 15 of the broca's area, a device in left ear, or the 15 in umbilical chord belly button which have very precise references to the earth vs moon in the bone (one is dim, one is candy bright). 
+Then you can refernece the 15 of the broca's area, a device in left ear, or the 15 in umbilical chord belly button which have very precise references to the earth vs moon in the bone (one is dim, one is candy bright). These 15 devices help the mind know whether air should stay or go. When it thinks you are like "the earth", the air pushes inside your ears and inside of you. When the it thinks you are like "the moon", the air screams to leave you, and all wavelengths are smaller.
+
+The broca's area knows if you are the moon/earth based on the present social situation
+
+The belly button knows if you are the moon/earth based on your DMT birth story. 
+
+If you always hear a story about how you are like the earth and not the moon, it's a default way to have longer wavelengths. 
+
+And if all the water inside of you agrees on just one thing (that it can share time), at quantum photonic level, then it will act like the intelligent oceans of the earth, with significantly longer wavelengths. 
+
+The secret of 14 is sharing.
+
+The secret of 15 is earth/moon comparison. 
+
+
+
+
 
 
 
