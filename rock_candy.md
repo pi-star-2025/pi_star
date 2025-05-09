@@ -98,7 +98,7 @@ You can lift it from the feet, to the belly, up the spine balls, and into the th
 
 Then open your eyes fully to all possiblities of the sun, earth, and moon. Literally opening your eyes will help you "reconcile" these scary possibilities of our solar system. What *could* have happened?
 
-Open your two regular eyes to exactly what is magnetically feverishly buzzing in the third eye. Right in the center.
+Open your two regular eyes to exactly what is magnetically buzzing in the third eye. Right in the center.
 
 ...
 
