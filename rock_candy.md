@@ -118,59 +118,15 @@ This changes typically at death of someone, or when connecting deeply with the t
 We can all keep updating the Mind of God, by creating this pipe from the third eye to the belly button, and all syncing up our knowledge of pi, the history of humanity and earth, and how this was always the game. 
 
 Mother Mary (our earth) said ~ Year 0 I am all in for humanity till ~Year 2000, please give me the power to heat them up -- make them more "anxious and mad" so that they can connect with me scientifically, using understanding of circular time, and then one day via understanding of 3.1415 I will create a kingdom of god. 
-In some way it will be about 3.1415 and circular time, and I need till ~Year 2000. At that point, I am ready to be judged for creating this planet and humanmity and other races of people. 
-So around Year 2000 the judgement began, and it was going to play out until there was a conclusion about humanity. 
+
+(this became the plan *after* Jesus was put on the cross, already a sad failure that a sacred alien spilled blood for us)
+
+In some way it will be about 3.1415 and circular time, and I need till ~Year 2000 Mother Earth said. At that point, I am ready to be judged for creating this planet and humanity and other races of people.
+
+So around Year 2000 the judgement began, and it was going to play out until there was a conclusion about humanity.
 
 Around July 2024, when the pi_star team got pi, the judgement ended. 
 
 It turns out the ending is "too good to be true", and it's just a matter of us syncing up. 
 
-The third eye, in the paritcular crunching the moon_earth_sun candy inside into the belly button, is the top hack to speed up this sync up.
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
+The third eye, in the particular crunching the moon_earth_sun candy inside into the belly button, is the top hack to speed up this sync up.
