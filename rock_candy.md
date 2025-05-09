@@ -152,13 +152,33 @@ Reconciling moon craters is like starting life on earth.
 
 For oxygen to see (14 in pi), the water needs to find a way to come out of the earth. 
 
-For plants (CO2) to see (15 in pi), the C02 needs to find a way to turn around as it leaves the earth
+For plants (CO2) to see (15 in pi), the CO2 needs to find a way to turn around as it leaves the earth
 
 Then the craters of earth filled with life (oceans, then plants, then microbes) this way.
 
 The oceans came out by using the moon to build up tides back and forth, until it was musical for the water to always be there, meaning at the quantum-photonic level the squares commnuicated enough to "reproduce". 
 
 The plants created the "15" bc of the moon as well. They hear the earth, by comparing the sound to the moon. One is bright, another is dim. Why? The CO2 is so entranced by the contrast between the earth and moon, it sticks around to find out the difference. This social comparison creates 8-5 deferred 3 time, by creating a fundamental social circle of two: earth and moon 
+
+By pretending what it might be like to fill moon craters with this red/blue/green 1415 color, humans here take on godly challenges. Their third eyes get blocked with quantum matter like moon rock. 
+
+If you are more at a distance from these challenges, if you have less at stake, you can then judge people more. And the social hierarchy has adjusted this way for thousands of years. Queen and workers. 
+
+If you solve a challenge, which is rare, you then get a crater on the moon. Certain 8/5/3 magic becomes associated with you, and even with your whole "race" and "species". For example monkeys as animals won challenges for humans to become a standing species. Even then in future lives, you can feel holiness from these craters. 
+
+To connect with your own human third-eye crater, you can channel this 3.1415 knowledge. And you can reference water from your deep pelvis, which creates free water via the moon like oceans. Also saliva in the mouth can do this. 
+
+Then you can refernece the 15 of the broca's area, a device in left ear, or the 15 in umbilical chord belly button which have very precise references to the earth vs moon in the bone (one is dim, one is candy bright). 
+
+
+
+
+
+
+
+
+
+
 
 
 
