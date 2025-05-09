@@ -182,6 +182,60 @@ The secret of 14 is sharing.
 
 The secret of 15 is earth/moon comparison. 
 
+...
+
+As soon as you know this, this is good enough
+
+You big toes are like spider webs, keeping track of your moon crater games. 
+
+With all this information and other information in pi_star, you can fill in your third eye forever with the webs of your toe nails. 
+
+In fact, the results of the biggest games always move towards the center. 
+
+Furthermore, the results of the entire earth are tracked in the belly button, how we are doing with moon games. 
+
+The belly-button bone is also a spiderweb of information. 
+
+In the center of the web, is this very same 3.1415 game. 
+
+...
+
+You have two "blackholes" which create your eye blacks. 
+
+And then a third, the third eye, is you. 
+
+A "blackhole" is just bone here that has so much time, it fell into a lower "dimension". 
+
+The eyes fell from 14.
+
+And as breath from the third eye, the pi challenge of the nose bone, you fell from 15 
+
+You look like black bone from high above, even though down here you know you are "yourself"
+
+So you fall down feeling like hard black noise, but really are you. 
+
+To get back up the first 1, you figure out all the reasons, you are "the moon and not the earth" 
+
+And to get up the second 1, you figure out all the reasons you need to "share time" more. 
+
+
+
+The nose bone is secretly just falling to the belly button area, 
+
+
+
+T
+
+
+he game is the third eye, like a moon crater. Still asking everyone for this information. 
+
+
+
+The results are in belly bone and toenails 
+
+In the toenails 
+
+In the deep belly button
 
 
 
