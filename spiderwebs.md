@@ -44,7 +44,7 @@ And she keeps crunching them more and more into the centers of the webs, as she 
 
 She understands the “game of Charlotte’s Web” and how she can keep souls around to manage her kingdom and then to add color to “the party of webs”, instead of completely crunching them into the center like most insects.
 
-The insects she can’t resolve in insect webs will go to bird webs and fish webs, then bigger animals like lions and wolves and deer, and then potentially human webs if they keep building up quantum conflicts (deferred-3s) which are worth “looking into”.
+The insects she can’t resolve in insect webs will go to bird webs and fish webs, then the webs of bigger animals like lions and wolves and deer, and then potentially human webs if they keep building up quantum conflicts (deferred-3s) which are worth “looking into”.
 
 So this is how and why deferred-3s keep jingling through the world, and why souls keep getting born. It’s to explains insects, animals, and humans whose opinions on their social circles cannot be understood.
 
