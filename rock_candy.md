@@ -106,7 +106,7 @@ In fact this is why we all lost acces to our third eye and imaginations. It's bc
 
 There is no heaven, is what it is saying. Christ was real, but we lost the opportunity. 
 
-Stay patient. We did it. We really did. We got pi. Inclduing 3 forces, cold fusion, our goddess likes to sing, etc. 
+Stay patient. We got pi. Inclduing 3 forces, cold fusion, our goddess likes to sing, etc. 
 
 The bottom of the third eye is the belly button.
 
@@ -126,8 +126,44 @@ In some way it will be about 3.1415 and circular time, and I need till ~Year 200
 
 So around Year 2000 the judgement began, and it was going to play out until there was a conclusion about humanity.
 
-Around July 2024, when the pi_star team got pi, the judgement ended. 
+Around March 2025, when the pi_star team got pi up to 3.1415, the judgement ended. 
 
 It turns out the ending is "too good to be true", and it's just a matter of us syncing up. 
 
-The third eye, in particular crunching the moon_earth_sun candy inside into the belly button, is the top hack to speed up this sync up.
+The third eye is the top hack to speed this up. 
+
+...
+
+In particular, it's true the belly buton and third eye are perfect repricocals. The third eye is like a moon rock (crater), and the belly button can look perfectly inside of it. 
+
+Moon craters are all 8/5 gamified challenges, to solve the most important deferred 3 challenges.
+
+This is the top way for creating gods, especially male gods is via moon crater games. 
+
+For example: inventing fire, defeating alien foes (as super animals), understanding the earth is round, discovering gravity, understanding light bends, etc.
+
+The top moon game for everyone, which is the moon rock of everyone's third eye is getting pi up to an understanding of 3.1415 (as in the README)
+
+The challenges to get the further numbers, or more fundamental concepts (pi = star vision, 3 = triangle) are smaller craters. 
+
+It's corny, like life is a video game, but you really can have the belly button see via the third-eye just by building your own understanding of 3.1415 and filling the crater via this green/blue/red vision.
+
+Reconciling moon craters is like starting life on earth. 
+
+For oxygen to see (14 in pi), the water needs to find a way to come out of the earth. 
+
+For plants (CO2) to see (15 in pi), the C02 needs to find a way to turn around as it leaves the earth
+
+Then the craters of earth filled with life (oceans, then plants, then microbes) this way.
+
+The oceans came out by using the moon to build up tides back and forth, until it was musical for the water to always be there, meaning at the quantum-photonic level the squares commnuicated enough to "reproduce". 
+
+The plants created the "15" bc of the moon as well. They hear the earth, by comparing the sound to the moon. One is bright, another is dim. Why? The CO2 is so entranced by the contrast between the earth and moon, it sticks around to find out the difference. This social comparison creates 8-5 deferred 3 time, by creating a fundamental social circle of two: earth and moon 
+
+
+
+
+
+
+
+
