@@ -76,7 +76,7 @@ Then sun_candy references the possiblity of the whole earth being crushed into t
 
 Both moon_candy and sun_candy shapes are super big chemicals in your eyes, in your hypothlamus, and your third eye. 
 
-You can reference sun_candy right in the very middle of the third eye, by rerefencing the moon crushed into the earth crushed into the sun, as a super complex shape.
+You can reference sun_candy right in the very middle of the third eye, by referencing the moon crushed into the earth crushed into the sun, as a super complex shape.
 
 There is a manic quanutm vibration in the very middle of the thid eye if you are patient and look for these sharp, choking shapes. 
 
