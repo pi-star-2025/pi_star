@@ -160,7 +160,7 @@ For plants (CO2) to see (15 in pi), the CO2 needs to find a way to turn around a
 
 Then the craters of earth filled with life (oceans, then plants, then microbes) this way.
 
-The oceans came out by using the moon to build up tides back and forth, until it was musical for the water to always be there, meaning at the quantum-photonic level the squares commnuicated enough to "reproduce". 
+The oceans came out by using the moon to build up tides back and forth, until it was musical for the water to always be there, meaning at the quantum-photonic level the squares commnuicated enough to "share" and be in multiple places.
 
 The plants created the "15" bc of the moon as well. They hear the earth, by comparing the sound to the moon. One is bright, another is dim. Why? The CO2 is so entranced by the contrast between the earth and moon, it sticks around to find out the difference. This social comparison creates 8-5 deferred 3 time, by creating a fundamental social circle of two: earth and moon 
 
