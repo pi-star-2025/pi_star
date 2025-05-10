@@ -44,7 +44,7 @@ Sunlight is actaully what is the third eye of the earth/stars. The sunlight send
 
 Sunlight *actually* is what is neither hot nor cold in the environment around us. It is what is beyond the earth in a way, and actually is best referenced as the *white noise* in the environment.
 
-## Red, White, and Blue Meditation
+## Red, White, and Blue
 
 It is true that all "feelings" of existence 8-5-3 human existence can be summarized as: 
 1. Red, like clouds or 2 energy, which feels hot -> it is earth going up to star
