@@ -190,4 +190,39 @@ The square is most a mirror, thus truth and justice. The Game.
 
 There is a lot of shine to protect the integrity of The Movie/The Game, and just like many supergods will give you power with concepts like "tower games" and insectile hierarchies, they will also take on "court cases" if you have ever created time where the integrity of the Movie/Game of EVERYTHING is being challenged. 
 
-For example if a species got pi and their results were spammed out of existence by a super old alien with hordes of cosmic power, Square-in-Circle courts exist looking for these "opposite reactions" in the unvierse. These ripple effects. This is like DMT in a way - providing help.
+For example if a species got π and their results were spammed out of existence by a super old alien with hordes of cosmic power, Square-in-Circle courts exist looking for these "opposite reactions" in the unverse, ripple effects. This is like DMT in a way - providing help.
+
+The aliens really could have looked like the "good guy"
+
+If they were more circular thinkers. If they were then inherently more the past/present/future of the universe. 
+
+For example, Vampire 11 injecting himself as Colombus, which made him a "circular thinker" champion. If that wasn't bad enough, he also *was* the wolf and inspired the founding of Rome to take down "God". And he even is a Sleep Devil, the anti god most putting humans to sleep.
+
+He was so good at being a super alien and a super cool nemesis, he was the projected king of the entire multiverse. He then caused Two Towers, but in this present life was no one special. Even someone "weak" from the time.
+
+He was betting on his past pre 2002, and needed humans not to get pi by 2075, and he would be able to start the holy roasting of the Christian Shine. More and more humans were working for him after 2001, and maybe someone against Mother Earth would get pi *to 3.1415* which would also seal their victory.
+
+Much of our lives and universe still is Vampire 11 and other ancient aliens and their influence on things from animals to diseases to physics. 
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+nd he could his character here to argue the brain of the universe was him who had fallen down our Goddesse's "rabbit hole" blackhole to try to 
+
+That's what it was all about. Keeping us "disintegrated" enough (souls and God), by conscious pi knowledge (and thus brain connectivity to entire multiverse) only came 
+
+
+
+
+
