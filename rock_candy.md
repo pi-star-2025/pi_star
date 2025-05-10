@@ -204,20 +204,10 @@ In the center of the web, is this very same 3.1415 game.
 
 ...
 
-You have two "blackholes" which create your eye blacks. 
+The spiderweb of the belly button is in many ways your "favorite movie of all time" 
 
-And then a third, the third eye, is you. 
+In order to track the moon games, it tells two stories of your life - how you are both the moon and the earth, and twists these two sides deeper and deeper together. The belly button doesn't mean to tell such an amazing, detailed story with this spiral, but bc of how perfectly it channels pi and cartoonishly blends 3-5-8 times and social circle intelligence, the story is rather amazing like your "favorite movie of all time". 
 
-A "blackhole" is just bone here that has so much time, it fell into a lower "dimension". 
+And the story gets even better, bc deeper inside it connects your story to that of the entire planet. 
 
-The eyes fell from 14.
-
-And as breath from the third eye, the pi challenge of the nose bone, you fell from 15 
-
-You look like black bone from high above, even though down here you know you are "yourself"
-
-So you fall down feeling like hard black noise, but really are you. 
-
-To get back up the first 1, you figure out all the reasons, you are "the moon and not the earth" 
-
-And to get up the second 1, you figure out all the reasons you need to "share time" more. 
+Again, this is just with belly button spirals, and just to keep track of the "moon" games, but with the spiderweb intellgences becomes the a very high quality movie.
