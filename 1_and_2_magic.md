@@ -32,7 +32,7 @@ This hypothlamus/collarbone/third eye air is something you can slow down and tur
 
 ## 1/2 of earth/star
 
-The clouds are all the "2 energy" of the earth/star. It's everything incorrect about "alpha" opinons of people down here, as determined by the earth/star. They are literally the clouds, and they are litearlly all the reasons we fall asleep. 
+The clouds are all the "2 energy" of the earth/star. It's everything incorrect about "alpha" opinons of people down here, as determined by the earth/star. They are literally the clouds, and they are literally all the reasons we fall asleep. 
 
 These clouds get into our own hypothlamus, mixing with our own opinons and becoming our own opinions. And we then sync up with the earth and fall asleep as everyone does. And if we don't, it feels like we are getting attacked by the alpha clouds, which are all the false gods of the world. They are given power by an alien (Vampire 11/"Colombus"). They are told to just keep "passing the baton" of power putting people to sleep. Live in the moment and live by alpha/beta like Rome. 
 
