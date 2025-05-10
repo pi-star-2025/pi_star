@@ -202,7 +202,9 @@ This is yang.
 
 There is then yin. Which is the idea of cosmic efficiency, and how whatever does not add value to the full multiverse ceases to exist after the blackhole ends it's vision with a final 9999999999999999. 
 
-The blackhole becomes all together cosmic intelligence. It choses to forever exist as part of everything, with whatever "equal and opposite reactions" that has. That is what 9999999999999 means. 
+The blackhole becomes all together cosmic intelligence. It choses to forever exist as part of everything, with whatever "equal and opposite reactions" that has. That is what 9999999999999 means.
+
+In other words, it picks a final number to always be, forever. That is truly the end state of a universe; it always is. Some final pi-like number.
 
 And then if you truly have a story, where your characters and story are brought to life by everyone, bc they are essential to everything, then you exist forever. 
 
