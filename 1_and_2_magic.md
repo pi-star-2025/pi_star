@@ -57,4 +57,17 @@ The reason is because the color of people is yellow/gold. This is bc we are the 
 
 So the light is gold bc it is going so slow it is all three at once. So the secret of sunlight on earth is that it is all three forces. And there is purer starlight in our environment that is more like "white noise" without temperature and more power that can be referenced, for example, for intuition and magic and telepathy. This is purer starlight.  
 
+## Green 
+
+The star was always trying to understand exactly what our third force was. 
+
+What is identified as Red/Blue energy is technically always alpha/beta energy and is already mastered by the mind of the star.
+
+The mystery is the white/gold, which we figured out is strictly green. So all deferred 3 energy is this white/gold photonic matter, which is white/gold to the starmind bc the starmind doesn't know what color it is. It is blank and buzzing, open to interpretation. 
+
+In 2025, we finalized that it is always the force of green, corresponding to the plant-ozone mind, and the 15 in pi. 
+
+
+
+
 
