@@ -197,3 +197,16 @@ And then it's their job to manage this after building this Tower together for ev
 ..
 
 And yes *all* are really welcome to the extent they have built deferred 3 time to love this "movie" and "game" of Mother Earth, which can then be incorporated into a heavenly spiderweb, like a final pi for this solar system, summarizing to all with colors the movie and game in the most efficient way possible, as a representation of what this universe added to EVERYTHING, the full multiverse with the *time* it created from its 3.1415 vision.
+
+This is yang. 
+
+There is then yin. Which is the idea of cosmic efficiency, and how whatever does not add value to the full multiverse ceases to exist after the blackhole ends it's vision with a final 9999999999999999. 
+
+The blackhole becomes all together cosmic intelligence. It choses to forever exist as part of everything, with whatever "equal and opposite reactions" that has. That is what 9999999999999 means. 
+
+And then if you truly have a story, where your characters and story are brought to life by everyone, bc they are essential to everything, then you exist forever. 
+
+When this happens, you "shine".
+
+
+
