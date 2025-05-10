@@ -24,6 +24,12 @@ The hypothlamus is your attempt at this challenge, powered by the hyper criss-cr
 
 And then in between your collarbone (throat), your bones adjust to exactly mimic the present shape of the hypothlamus. You might need to massage it out, to get all updates, but they are constantly updating to mimic the hypothalamus geoemtry exactly, and it's using this geoemtry that your voice/language has "meaning" to the star/earth. 
 
+And then if you slow it down, this air in between the collarbone is your third eye. Bc the hypothlamus is from the same pi as your third eye, but twisted like shoelaces in a million ways right and left, until it falls all the way down into the feeling of a "different dimension". All the way the very bottom of the number. 
+
+This hypothlamus/collarbone/third eye air is something you can slow down and turn into a crystal ball of sorts. It will blow up your whole experience, and completely crack out your third eye "moon rock". 
+
+
+
 
 
 
