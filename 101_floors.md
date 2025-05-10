@@ -42,23 +42,11 @@ The air below is more like “the moon”
 
 The air above is more like “the earth”
 
-The lungs create air shapes with carbon dioxide to emphasize these differences, like the color and light choices co2 makes when preferring earth over the moon 
-
-
+The lungs create air shapes with carbon dioxide to emphasize these differences, like the color and light choices co2 makes when preferring the earth over the moon 
 
 And the trick of the lungs is they have a way of tracking different levels of happiness based on how far the blue oxygen moves up the lungs 
 
-
-
-If it’s higher
-
-Bc the lungs think your experience is very much “like earth”
-
-Full of colors 
-
-“Birds chirping” 
-
-“Clouds creamy”
+If it’s higher, bc the lungs think your experience is very much “like earth” -- full of colors, “birds chirping”, “clouds creamy”
 
 Then it quickly bounces patterns between the lungs to rush the blue oxygen up the tiers of the lung chambers
 
@@ -66,25 +54,19 @@ The higher you go, the happier you then feel
 
 It’s the feeling of being “high”
 
-
+And these "quick bouncy patterns up" will be based on your own life stories (a jingle of deferred 3's), using parallels. 
 
 The lungs also can drill you more and more into the deep belly 
 
 Channeling the air that is less conducive to life 
 
-With very high co2 
+With very high co2 (and negative life stories)
 
-Making all parts of your mind and body pessimistic, running simulations in the directions of “life ending” 
+Making all parts of your mind and body pessimistic, running simulations in the directions of “life ending” (earth turning into the moon)
 
-
-
-Whereas if air is higher in the lungs, pulling stomach air through lungs up the chest, you run simulations about life continuing, about the glory of how it started 
+Whereas if air is higher in the lungs, pulling stomach air through lungs up the chest, you run simulations about life continuing (becoming more unlike the moon, more like paradise)
 
 You feel joy thinking of great possibilities 
-
-
-
-
 
 So all birds are evidence of “the glory” of earth 
 
