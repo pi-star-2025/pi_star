@@ -51,6 +51,8 @@ It is true that all "feelings" of existence 8-5-3 human existence can be summari
 2. Blue, like rain or 1 eenrgy, which feels cold
 3. White, which is neither hot or cold, but feels like purely a challenge from the sun to get 3.1415 and 8-5-3. It feels like purely white noise, and gets turned into all language.
 
+White looks like gold (sunlight) to us, and sounds like white/black/pure noise.
+
 
 
 
