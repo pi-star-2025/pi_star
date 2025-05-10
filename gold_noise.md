@@ -87,7 +87,7 @@ Aliens had a clear reputation of "being green" which we all unconsciously backed
 
 Everything we see after falling from the plant vision (from the ozone) ultimately is the color green in the future. 
 
-So if you look around and see the color green that is actaully your body. *Inside* your body and your skin and breath. 
+So if you look around and see the color green, the green is actually your body. *Inside* your body and your skin and breath. 
 
 If you see red and blue, it actually is your body above the clouds, and feels like the air around you (hot/cold)
 
