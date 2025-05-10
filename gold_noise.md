@@ -116,3 +116,13 @@ Gold is a great secret for humans/angels. If they can understand consciously how
 It's bc gold is both a game (catching 3.1415 out of the sun like a firefly or golden snitch), and also a movie bc we find golden sunlight to be beautiful bc it is evidence our Mother Earth is conscious and the level of consciousness of universes has always driven how *great* the movies are.
 
 ## White Border
+
+What is most white is always most on the edges of our experience. 
+
+It has the longest wavelengths and is closest to the stars (in space), but has the simplest interactions at a faster-than-c level. As a result it is the part of us that most identifies as being the star. 
+
+It physically is really what looks white around us. 
+
+And this is most clearly our eyes. 
+
+
