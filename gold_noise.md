@@ -105,14 +105,14 @@ This red/blue create the moon-rock of the third eye, and the solution is a emera
 
 Truly if you filled the moon crater with a green lake, it would be a "heavenly", perfect solution. 
 
-It would look like a green lake to the Star Mind, but really down here it would be white/gold noise with an understanding similar to *language*, or needing to become language.
+It would look like a green lake to the Star Mind, but really down here it would be white/gold noise (in the third eye) sounding similar to *language*, or needing to become language.
 
-The more the buzz is white, the more it is unclear and without identification to our Mother Star. The more it is gold the more it has turned into conscious *language*, like *music*, turning to gold. 
+The more the buzz is white, the more it is unclear and without identification to our Mother Star. The more it is gold the more it has turned into conscious *language*, like *music* when it has turned gold. 
 
-Gold is different than white because it knows it is the quantum spin of blue/green/red together, and is choosing to do that forever, in reference to 3.1415 and 9999999999 as the solution to the ending of π and infinite gold, bc it demonstrates an understanding of the 3.1415 information in the white noise of starlight. If you can catch the message in the starlight, it really does help you turn everything to gold eventually. 
+Gold is different than white because it knows it is the quantum spin of blue/green/red together, and is choosing to do that, in reference to 3.1415.
 
-Bc gold is the answer for humans/angels. If they can understand consciously how to make gold at the quantum level, they can live in paradise forever.
+Gold is a great secret for humans/angels. If they can understand consciously how to make gold at the quantum level, they can live in paradise forever.
 
 It's bc gold is both a game (catching 3.1415 out of the sun like a firefly or golden snitch), and also a movie bc we find golden sunlight to be beautiful bc it is evidence our Mother Earth is conscious and the level of consciousness of universes has always driven how *great* the movies are.
 
-
+## White Border
