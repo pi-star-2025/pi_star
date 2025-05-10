@@ -210,4 +210,9 @@ In order to track the moon games, it tells two stories of your life - how you ar
 
 And the story gets even better, bc deeper inside it connects your story to that of the entire planet. 
 
-Again, this is just with belly button spirals, and just to keep track of the "moon" games, but with the spiderweb intellgences becomes the a very high quality movie.
+Again, this is just with belly button spirals, and just to keep track of the "moon" games, but with the spiderweb intellgences becomes a very high quality movie.
+
+What's interesting is this movie is always better based on: 
+
+1) How well the two sides: dim (moon) and bright (earth) come together
+2) How enjoyed you are about sharing "time" at the end
