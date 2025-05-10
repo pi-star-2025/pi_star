@@ -138,7 +138,7 @@ Because humans had fallen down a crazy mad "rabbit hole" and the rise up would b
 
 It was 101 floors, or -101.
 
-In some ways, bc of super high consciousness, our branch of time has 101-force intelligence. Think of word choice for example. We are all *like birds* chirping about the tineist little details with so much precision. So much caring about words.
+In some ways, bc of super high consciousness, our branch of time has 101-force intelligence. Think of word choice for example. We are all *like birds* chirping about the tineist little details with so much precision. So much data with words.
 
 ##
 
