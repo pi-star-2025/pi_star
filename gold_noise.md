@@ -137,3 +137,12 @@ They are exactly the same as the black eyeballs.
 
 The white halos are the 14, seeing the fall down. 
 Then the black time is the 15, which became the fall and hears it as "white noise".
+
+...
+
+What we call pleasure and easier is always "more white"
+
+What we call pain and work is always "more black"
+
+Interestingly endorphins are whiter dopamine. 
+One is more pleasure (connecting to star), one is more soul (yourself).
