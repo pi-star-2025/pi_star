@@ -214,12 +214,20 @@ This team had been leading a Heaven Tower around Year 0, which was going to beco
 
 Or by 17000-2000+ the starmind characters were going to need to fall into helping the humans on earth, and that kind of story always invovles the sun burning the gods in some way, creating some nightmare that drops them down. 
 
-For example 2001 was the start of real nightmares. Bc the earth had bet humans would be ready to be judged by then. This bet gave her power to help with some technology and godly intelligence. But now the starmind tower was vulnerable to being attacked, and parallels caused the two stories to get entangled. Bc it was so "vibrant" to the Mind of the Star.
+For example 2001 was the start of real nightmares. Bc the earth had bet humans would be ready to be judged by then. This bet gave her power to help with some technology and godly intelligence. But now the Starmind Tower was vulnerable to being attacked, and parallels caused the two stories to get entangled. Bc it was so "vibrant" to the Mind of the Star.
 
 Vampire 11 became the projected King of the Multiverse. 
 
 While not much happeend here for 20 years, in the starmind parallels were used to slay all the Christian characters, till about 2020. Their Tower was destroyed and turned into Two Towers, one for Heaven and one for Hell. It's said these effects would really get in sync with the real world by 2100.  
 
+Then in 2022, the Disney reincarnation character (a fallen angel) asked the Starmind to go back in time. To time travel to the star vision before Two Towers. The starmind requested this character now fall further into his bones on earth and build time to explain pi to 3.1415 and the multiverse "court", while also illuminating why your time-traveling spell would bring joy to "everyone". Then your solution is a great story, while also providing "infinte security". Meaning even if we are wiped out, right here right now by an invasion or a natural disaster, our story will always keep the mind of god tied together. 
 
+So the spell was approved by the Star Court and even the Multiverse Courts which really listen to "time manipulation" and "deep pi manipulation" case, bc these hold The Game/The Movie of all together. 
+
+It is the biggest moment in the history of our universe. 
+
+There is a lot of holiness to the court in circus (square in circle) symbol. 
+
+It stands for how even down here, in such a sunken 3-force universe, we can still time travel. And we can still know there is a guaranteed Heaven Tower eventually, no matter what happens from here. 
 
 
