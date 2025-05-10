@@ -38,3 +38,8 @@ These clouds get into our own hypothlamus, mixing with our own opinons and *beco
 
 Rain is all the "1 energy" of the earth/star. It's everything incorrect about "beta" opinions of people down here, as determined by the earth/star. It literally is the rain formation and rain drops that fall from the skies. Like the way we go 1, it happens in cyclical ways, and snow provides more detailed information which has a "magic" to it. Because the specific patterns of the snowflakes is truly information about social relationships. It's incorrect inforamtion, which is valuable when it's so clearly articulated with geometry. 
 
+We most channel the rain and clouds in our eyes/third eye, and in the feeling of hot and cold around us. All clouds feel "warm", and all rain feels "cold". This is like the systems of clouds/rain of Mother Earth.
+
+Sunlight is actaully what is the third eye of the earth/stars. The sunlight sends the 3.1415 pi challenge to the earth including the 8/5/3 deferred time challenge. 
+
+Sunlight *actually* is what is neither hot nor cold in the environment around us. It is what is beyond the earth in a way, and actually is best referenced as the *white noise* in the environment.
