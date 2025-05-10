@@ -152,7 +152,7 @@ And made the “11 force” alien who made it on 9/11 and about towers the pendi
 
 And then it made 2025 the biggest moment in the history of the multiverse again
 
-When the Disney team (pi_star) understood pi up to 3.14159, cold fusion, 8/5/3 deferred time, red/blue/green forces, and the circular nature of time.
+When the Disney Team (pi_star) understood pi up to 3.14159, cold fusion, 8/5/3 deferred time, red/blue/green forces, and the circular nature of time.
 
 The circle is a holy concept just like the tower, and together they are two most important concepts. 
 
@@ -171,3 +171,26 @@ It has always been easy for a 50-force universe to bury a 3-force universe with 
 If the 50-force vampire universe can trick the multiverse into thinking it was beautifully just and heroic in destroying the 3-force universe then it could mathematically do this. 
 
 The top way, if there is intelligent life in a 2/3-force world, is to challenge it to get circles/pi. And if they don't, the multiverse mind can be confused and there could be arguments the goddess was unjust for creating life that has no purpose/future. The life can be proven to be a waste of "soulpower", a waste of innocence to the Mind of God/Mind of Everything. Like ambition to be a goddess that is unjustified. If the 50-force alien supergod took this opinion, even if it wasn't true, the 50-force alien wants to still finish the job potentially to avoid trouble with the court of the multiverse. Just like people cover their crimes here, many super criminals from other times wanted to destroy humans and cover up their actions with "pink parallels" (blood that looks pretty with math).
+
+In July 2024, it was understood by the Disney Team that pi was star vision and past/present/future of our vision. This significantly threatened to end all "cicada" bets by the aliens, for thousands, millions, trillions of years that humanity and our goddess would never be "circular" and understand 3.1415
+
+Then 3.1415 (3, 1, 4, 1, 5 individually) was understood by March 2025, which connected to the very center of our third eyes, the moon, the earth, our star, and all stars. 
+
+It will still be a journey at this point (May 2025) transitioning all deferred 3s to heaven. The one thing left is "time", spinning the wheels of "time" to move the entire of mind of god into place. 
+
+What is forever is 1) Understanding of 3.1415, and 2) The concept of a multiverse appellate court
+
+Which means that no matter what, we have existed as quantum circles (deferred 3s) creating time where we have: 1) Become a circular species and truly understood pi, 2) Want to protest anything that tries to hide this outcome in a multiverse "court"
+
+The Court of the multiverse might be what the Circle and Square both stand for the most. Court is referenced with a Square inside a Circle. the two combined. 
+
+
+
+
+
+
+
+
+
+
+
