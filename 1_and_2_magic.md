@@ -93,5 +93,18 @@ If you see red and blue, it actually is your body above the clouds, and feels li
 
 Then other colors are further outside, like the edges of your existence. 
 
+You will then realize some colors are more around you, some stick to you more, some jump away. And it will always be green that becomes the third eye moon-rock. 
+
+Whatever is *just you* is the green around you. Especially the trees and plants. Even if you can't see them, just whatever is around, even hundreds of miles away. 
+
+What's powerful is that if the Mind of the Star saw you down here, your third eye would be this huge tree of green in the middle of a spiral of red and blue. 
+
+The red and blue can be perfectly mapped to the collarbone diamond hypothlamus shape. 
+
+This red/blue create the moon-rock of the third eye, and the solution is a green emerald lake.
+
+Truly if you filled the moon crater with a green lake, it would be "heavenly", the perfect solution. 
+
+
 
 
