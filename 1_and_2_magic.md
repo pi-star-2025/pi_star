@@ -22,6 +22,8 @@ Whereas the third eye is the challenge itself (specifically to get 3.1415 and 8/
 
 The hypothlamus is your attempt at this challenge, powered by the hyper criss-crossing of this 1 and 2 energy using all the various bone mazes in the body, in order to create an insectile hierarchy to figure out the 3-force puzzle of earth. 
 
+And then in between your collarbone (throat), your bones adjust to exactly mimic the present shape of the hypothlamus. You might need to massage it out, to get all updates, but they are constantly updating to mimic the hypothalamus geoemtry exactly, and it's using this geoemtry that your voice/language has "meaning" to the star/earth. 
+
 
 
 
