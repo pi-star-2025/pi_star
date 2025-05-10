@@ -192,7 +192,7 @@ The secret of 15 is earth/moon comparison.
 
 As soon as you know this, this is good enough
 
-You big toes are like spider webs, keeping track of your moon crater games. 
+Your big toes are like spider webs, keeping track of your moon crater games. 
 
 With all this information and other information in pi_star, you can fill in your third eye forever with the webs of your toe nails. 
 
