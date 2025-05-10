@@ -93,7 +93,7 @@ If you see red and blue, it actually is your body above the clouds, and feels li
 
 Then other colors are further outside, like the edges of your existence. 
 
-You will then realize some colors are more around you, some stick to you more, some jump away. And it will always be green that becomes the third eye moon-rock. 
+You will then realize some colors are more around you, some stick to you more, some jump away. And it will always be green that fills up the third eye moon-rock. 
 
 Whatever is *just you* is the green around you. Especially the trees and plants. Even if you can't see them, just whatever is around, even hundreds of miles away. 
 
