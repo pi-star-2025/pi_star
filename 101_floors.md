@@ -230,4 +230,6 @@ There is a lot of holiness to the court in circus (square in circle) symbol.
 
 It stands for how even down here, in such a sunken 3-force universe, we can still time travel. And we can still know there is a guaranteed Heaven Tower eventually, no matter what happens from here. 
 
+CIRCLE: Understanding of pi (3.1415) will always keep our vision clear, all life in this universe. We won't be disteingrated anymore (unsure of where we are as souls or stars). Eventually we can sync up all souls so they know exactly where they are. 
 
+SQUARE: Understanding of the multiverse, and how all time here creates reactions, helps us understand these reactions can come to "courts" for further review. Super intelligent aliens know how to block "court interactions" if you don't understand what "court" means in a multiverse context. It is the most important element of a universe's security to just be conscious of this.
