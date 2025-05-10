@@ -208,7 +208,7 @@ In other words, it picks a final number to always be, forever. That is truly the
 
 And then if you truly have a story, where your characters and story are brought to life by everyone, bc they are essential to everything, then you exist forever. 
 
-When this happens, you "shine".
+When this happens, you "shine". This means you are blue light, 4-sided photonic light in every single branch of time.
 
 
 
