@@ -146,3 +146,14 @@ What we call pain and work is always "more black"
 
 Interestingly endorphins are whiter dopamine. 
 One is more pleasure (connecting to star), one is more soul (yourself).
+
+Endorphins are smalller but create bigger wavelengths of pleasure, sometimes really big, like a "glow", a halo. 
+Dopamine is larger but creates smaller wavelengths. Feels like motivation, even fun. 
+
+Women and mature men secretly have nipples that always breathe up. 
+Younger men, or men feeling lower ranking have nipples that breathe down.
+
+Anyone in pain, or in an anxious state, will have nipples breathing down more.
+
+
+
