@@ -129,4 +129,11 @@ It physically is really what looks white around us.
 
 And this is most clearly our eyes. 
 
+We look like white halos to the Mind of the Star, before we fall into being red/blue spirals, then a green lake. 
 
+The eyes are the white halos. 
+
+They are exactly the same as the black eyeballs.
+
+The white halos are the 14, seeing the fall down. 
+Then the black time is the 15, which became the fall and hears it as "white noise".
