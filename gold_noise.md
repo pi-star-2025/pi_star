@@ -155,5 +155,12 @@ Younger men, or men feeling lower ranking have nipples that breathe down.
 
 Anyone in pain, or in an anxious state, will have nipples breathing down more.
 
+The best way to make DMT in your own body is to slow down the air of both nipples. Have them breathe neither up nor down. 
+
+DMT actually plays with the forces of black and white, which gives it a lot of power. Black and white is alpha/beta, and when that is slowed down it indicates some kind of 8-5-3 meta understanding.
+
+Black and white could be interpteted as lighter and darker colors of any variety, for example night/day shades.
+
+
 
 
