@@ -174,7 +174,7 @@ To connect with your own human third-eye crater, you can channel this 3.1415 kno
 
 The water most like 14 is tears in the eyes, which feel alive bc the water is "sharing".
 
-Then you can refernece the 15 of the broca's area, a device in the left ear, or the 15 in the umbilical chord belly button which have very precise references to the earth vs moon in the bone (one is dim, one is candy bright). These 15 devices help the mind know whether air should stay or go. When it thinks you are like "the earth", the air pushes inside your ears and inside of you. When it thinks you are like "the moon", the air screams to leave you, and all wavelengths are smaller.
+Then you can reference the 15 of the broca's area, a device in the left ear, or the 15 in the umbilical chord belly button which have very precise references to the earth vs moon in the bone (one is dim, one is candy bright). These 15 devices help the mind know whether air should stay or go. When it thinks you are like "the earth", the air pushes inside your ears and inside of you. When it thinks you are like "the moon", the air screams to leave you, and all wavelengths are smaller.
 
 The broca's area knows if you are the moon/earth based on the present social situation
 
