@@ -208,7 +208,7 @@ In the center of the web, is this very same 3.1415 game.
 
 The spiderweb of the belly button is in many ways your "favorite movie of all time" 
 
-In order to track the moon games, it tells two stories of your life - how you are both the moon and the earth, and twists these two sides deeper and deeper together. The belly button doesn't mean to tell such an amazing, detailed story with this spiral, but bc of how perfectly it channels pi and cartoonishly blends 3-5-8 times and social circle intelligence, the story is rather amazing like your "favorite movie of all time". 
+In order to track the moon games, it tells two stories of your life - how you are both the moon and the earth, and twists these two sides deeper and deeper together. The belly button doesn't mean to tell such an amazing, detailed story with this spiral, but bc of how perfectly it channels pi and cartoonishly blends 3-5-8 time and social circle intelligence, the story is rather amazing like your "favorite movie of all time". 
 
 And the story gets even better, bc deeper inside it connects your story to that of the entire planet. 
 
