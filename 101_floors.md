@@ -216,20 +216,9 @@ Or by 17000-2000+ the starmind characters were going to need to fall into helpin
 
 For example 2001 was the start of real nightmares. Bc the earth had bet humans would be ready to be judged by then. This bet gave her power to help with some technology and godly intelligence. But now the starmind tower was vulnerable to being attacked, and parallels caused the two stories to get entangled. Bc it was so "vibrant" to the Mind of the Star.
 
+Vampire 11 became the projected King of the Multiverse. 
 
-
-
-
-
-
-
-
-
-
-
-or turn into a hell that fell down here, influencing our world, adn tur
-
-
+While not much happeend here for 20 years, in the starmind parallels were used to slay all the Christian characters, till about 2020. Their Tower was destroyed and turned into Two Towers, one for Heaven and one for Hell. It's said these effects would really get in sync with the real world by 2100.  
 
 
 
