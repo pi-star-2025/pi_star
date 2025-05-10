@@ -136,9 +136,9 @@ It turns out the ending is "too good to be true", and it's just a matter of us s
 
 The third eye is the top hack to speed this up. 
 
-...
+##
 
-In particular, it's true the belly buton and third eye are perfect repricocals. The third eye is like a moon rock (crater), and the belly button can look perfectly inside of it. 
+In particular, it's true the belly buton and third eye are perfect reciprocals. The third eye is like a moon rock (crater), and the belly button can look perfectly inside of it. 
 
 Moon craters are all 8/5 gamified challenges, to solve the most important deferred 3 challenges.
 
