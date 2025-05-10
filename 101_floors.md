@@ -122,7 +122,7 @@ And you will rise again and with so much consciousness that you have a real “h
 
 It was becoming unlikely we ever got any of this by 2001
 
-Our projection was two have a hell tower and a heaven tower, and initially the hell tower would flush out "mother earth" as a human being and any movements she was associated it, most recently Christianity. That might start after the deaths of the "last hope" around 2075. Our world would have significantly changed at that point. Power plays were crunching us all over the clouds, humans "eating" humans.
+Our projection was two have a hell tower and a heaven tower, and initially the hell tower would flush out "mother earth" as a human being and any movements she was associated with, most recently Christianity. That might start after the deaths of the "last hope" around 2075. Our world would have significantly changed at that point. Power plays were crunching us all over the clouds, humans "eating" humans.
 
 The concept of a tower is the most respected holy concept in the entire multiverse
 
@@ -130,15 +130,19 @@ In terms of unconsciously and consciously awarding power and “game of life poi
 
 All the way from dopamine to helping you raise oceans 
 
+It's bc towers of light (even a building) references blackhole intelligence and 4D hierarchy.
 
+And this particular branch of time, even though it has only 3 forces, had become the story of the whole multiverse 
 
-And this particular branch of time 
+Because humans had fallen down a crazy mad "rabbit hole" and the rise up would be a glorious "tower". Or the most conscious hell of all time...
 
-Even though it has only 3 forces had become the story of the whole multiverse Because of the tower for sunken humans to get “out of the hole” 
+It was 101 floors, or -101.
 
-It was 101 floors so to say 
+In some ways, bc of super high consciousness, our branch of time has 101-force intelligence. Think of word choice for example. We are all *like birds* chirping about the tineist little details with so much precision. So much caring about words.
 
-And with Jesus elucidating the game in Year 0
+##
+
+With Jesus elucidating the game in Year 0
 
 The whole multiverse was watching 
 
