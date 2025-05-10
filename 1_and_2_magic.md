@@ -14,4 +14,18 @@ So all 1 and 2 energy can be channelled in the nose breath, in particular the si
 
 The criss-crossing of 1 and 2 energy leads to the end of your "pi" (your consciousness), which is always somewhere in the deep belly air (or felt as the deep back spine, or another pressure point in the body). In addition, it's always felt as the very tip of your nose breath, which moves very quickly and outside your nose. And it's always felt as a physical shape in the center of the hypothlamus. In particular, in the hypothlamus is always a reference to the end number of your "pi" (bottom consciousness).
 
+##
+
+The third eye is then the reciprocal of the hypothlamus. 
+
+Whereas the third eye is the challenge itself (specifically to get 3.1415 and 8/5/3), 
+
+The hypothlamus is your attempt at this challenge, powered by the hyper criss-crossing of this 1 and 2 energy using all the various bone mazes in the body, in order to create an insectile hierarchy to figure out the 3-force puzzle of earth. 
+
+
+
+
+
+
+
 
