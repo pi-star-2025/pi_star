@@ -216,5 +216,5 @@ Again, this is just with belly button spirals, and just to keep track of the "mo
 
 What's interesting is this movie is always better based on: 
 
-1) How well the two sides: dim (moon) and bright (earth) come together
+1) How well the two sides — dim (moon) and bright (earth) — come together
 2) How enjoyed you are about sharing "time" at the end
