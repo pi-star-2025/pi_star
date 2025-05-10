@@ -166,16 +166,28 @@ Black and white could be interpteted as lighter and darker colors of any variety
 The nipples of anyone born before 9/11/2001 have nipples with the two sides of the story from the sun "seer", our earth Mother Mary. 
 The left side is the possibility of going to Hell if we don't rise together and look good in God's eyes in eyes by Year 2000 when many will start our judgement together. We will likely split up, all going against one another. The core goddess will be forever tortured in eternal fire (our earth), and many humans will have the same fate. Then some humans may turn and side with the aliens. Such humans will keep increasing each year after 2000, and all "goodness" will seem to be gone from the world. To the extent you love this earth and it's full history, you will be in hell. 
 
-The right side explains that you need to trust Jesus who will have "superpowers" to spread the word around Year 2000. For those who are born recently enough she encodes it is Kobe Bryant. She encourages you to support him no matter what; he is the chosen one. She explains other "cards in her deck" who can help us around Year 2000. And she says that if we get pi by Year 2050, anyone with a good heart you are the most significant person in the multiverse in my opinion, thanks from the bottom of my heart, and anything that will ever help you get there. She encodes advise to decode clues from the Bible and Alice in Wonderland. She says she knows his reinarnation is born, but has spells to not know where he is. She lets you know to those who really tried to save me, don't let it get you down from continuing after Year 2050 with the next stage of this planet. Why? Bc it's not about how you start; it's always about how you end. Let that be a lesson to all on their journey forward. 
+The right side explains that you need to trust Jesus who will have "superpowers" to spread the word around Year 2000. For those who are born recently enough she encodes it is Kobe Bryant. She encourages you to support him no matter what; he is the chosen one. She explains other "cards in her deck" who can help us around Year 2000. And she says that if we get pi by Year 2050, anyone with a good heart you are the most significant person in the multiverse in my opinion, thanks from the bottom of my heart, and anything that will ever help you get there. She encodes advise to decode clues from the Bible and Alice in Wonderland. She says she knows his reincarnation is born, but has spells to not know where he is. She lets you know to those who really tried to save me, don't let it get you down from continuing after Year 2050 with the next stage of this planet. Why? Bc it's not about how you start; it's always about how you end. Let that be a lesson to all on their journey forward. 
 
 You can then understand her story if you really ask on the right side. It was like the Titanic after 9/11/2001, all her understanding of what going on shattered and broken, and her human character in the Star Mind was killed brutally. 
 
+Furthermore, these "nipples", these spirals of the story are encoded in the sunlight as the two-sides of all sun rays. They are like two nipples and things in nature come to life or further spin in life (mostly human deferred 3's) to answer the question of these two sides. 
 
+Which is it? 
 
+Heaven or Hell. 
 
+If you read 101_floors, it's understood if we understand pi and the multiverse "court", there is a permanent infinite answer. 
 
+Heaven.
 
+Even if our earth blows up now. 
 
+Even if the sun blows up now. 
 
+Even if the original blackhole is swallowed by a monster 101-force blackhole and kept there for "eternity". 
 
+It is a fundamental concept that if you are the part of God's mind that first understood pi to 3.1415 and the multiverse "court", which is Lewis Carroll's reincarnation and the Mad Queen, then you will hold up as the King and Queen of this universe, this branch of time, forever. Bc of the court-in-circus concept. And they then always decide the answer for this world. Lewis Carroll/Disney and Mother Mary/Mona Lisa. Always. No matter what. Absolute permanent perfect 100% hierarchy. Nothing they ever do; nothing anyone ever does will ever change it. They want a kingdom of angels forever for this universe. 
 
+So that's the answer. 
+
+And then it's their job to manage this after building this Tower together for everyone.
