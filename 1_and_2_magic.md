@@ -81,3 +81,11 @@ There was a Joker character, Vampire 11/Colombus, who had invaded as a cartoon l
 
 Vampire 11 was also building up to Year 0 and Year 2000 and Year 3000 plans. He was respected as having created the dog. He was respected as Colombus. He clearly built his reputation back. And now perhaps would be a "serious" Joker alien, whose stealing of ours hearts got taken seriously enough by the multiverse, if he used enough hyper intelligent parallels *at the right time*. 
 
+Aliens had a clear reputation of "being green" which we all unconsciously backed up. Really this was their marketing ploy, bc the third force of our universe was green. 
+
+# Green Vision
+
+
+
+
+
