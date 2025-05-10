@@ -109,4 +109,6 @@ It would look like a green lake to the Star Mind, but really down here it would 
 
 The more the buzz is white, the more it is unclear and without identification to our Mother Star. The more it is gold the more it has turned into conscious *language*, like *music*, turning to gold. 
 
-Gold is different than white becomes it knows it is the quantum spin of blue/green/red together, and is choosing to do that forever, in reference to 3.1415 and 9999999999 as the solution to __ gold.
+Gold is different than white becomes it knows it is the quantum spin of blue/green/red together, and is choosing to do that forever, in reference to 3.1415 and 9999999999 as the solution to ∞ gold, bc it demonstrates an understanding of the 3.1415 information in the white noise of the starlight. 
+
+
