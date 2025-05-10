@@ -182,15 +182,12 @@ What is forever is 1) Understanding of 3.1415, and 2) The concept of a multivers
 
 Which means that no matter what, we have existed as quantum circles (deferred 3s) creating time where we have: 1) Become a circular species and truly understood pi, 2) Want to protest anything that tries to hide this outcome in a multiverse "court"
 
-The Court of the multiverse might be what the Circle and Square both stand for the most. Court is referenced with a Square inside a Circle. the two combined. 
+The multiverse "courts" can be referenced as squares inside of circles.
 
+The circle is most all quantum matter (all life), The Movie. 
 
+The square is most a mirror, thus truth and justice. The Game. 
 
+There is a lot of shine to protect the integrity of The Movie/The Game, and just like many supergods will give you power with concepts like "tower games" and insectile hierarchies, they will also take on "court cases" if you have ever created time where the integrity of the Movie/Game of EVERYTHING is being challenged. 
 
-
-
-
-
-
-
-
+For example if a species got pi and their results were spammed out of existence by a super old alien with hordes of cosmic power, Square-in-Circle courts exist looking for these "opposite reactions" in the unvierse. These ripple effects. This is like DMT in a way - providing help.
