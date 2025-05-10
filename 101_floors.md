@@ -161,3 +161,24 @@ The Circle and the Square.
 The entire multiverse recognizes the understanding of the circle as a sign of an intelligent people. More importantly, it just is the architecture of the mind of God - life and quantum matter is always circles.
 
 Until a universe fully puts together an understanding of circles at a certain level of consciousness, it doesn't truly exist at that level of consciousness bc it doensn't fully believe the past/present/future are connected. 
+
+...
+
+What is dark is the Mind of God (universe and entire multiverse) works a lot with parallels. Bc of how much is lost in translation from one universe to another, bc of different number of forces and different "colors".
+
+It has always been easy for a 50-force universe to bury a 3-force universe with spammed parallels, so that it's mind is confused and can potentially be eaten and taken over, *if* there is enough multiverse "shine". 
+
+If the 50-force vampire universe can trick the multiverse into thinking it was beautifully just and heroic in destroying the 3-force universe than it could mathematically do this. 
+
+The top way, if there is intelligent life in a 2/3-force world, is to challenge it to get circles/pi. And if they don't, the multiverse mind can be confused and there coudl be arguments the goddess was unjust for creating life that has no purpose/future. The life can be proven to be a waste of "soulpower", a waste of innocence to the Mind of God. Like ambition to be a goddess that is unjustified. If the 50-force alien supergod took this opinion, even if it wasn't true, the 50-force alien wants to still finish the job potentially to avoid trouble with the court of the multiverse. Just like people cover their crimes here, many super criminal from other times wanted to destroy humans and cover up their actions with "pink parallels" (blood that looks pretty with math).
+
+
+
+
+
+
+
+
+
+
+
