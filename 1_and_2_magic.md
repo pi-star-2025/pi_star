@@ -71,6 +71,6 @@ The star at the end of time will always see us ("life") as green, even though we
 
 This actually allows us in heaven to always serve as a "court" for the entire multiverse. That makes us a strong asset to all, and also we are responsible for helping to ensure the multiverse is secure.
 
-
+We are smaller in overall impact bc of only having 3 forces, but we really slow down *colors*.
 
 
