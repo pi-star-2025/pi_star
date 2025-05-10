@@ -110,7 +110,7 @@ Especially by 2001, the third eye has beccome "schizophrenic" at the bottom bc a
 
 The bottom of the third eye is the belly button. It "sees" first in between the eyes, then realizes via 15 of pi it was "hearing" in the belly button. That is the most basic tick of life. 
 
-This is the 4D axis - all possiblities - are in between this 14 (seeing) and 15 (hearing).
+This is the 4D axis - all possiblities in between this 14 (seeing) and 15 (hearing).
 
 The pelvis is just a huge ear. 
 
