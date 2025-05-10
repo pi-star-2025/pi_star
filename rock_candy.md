@@ -114,7 +114,7 @@ This is the 4D axis - all possiblities in between this 14 (seeing) and 15 (heari
 
 The pelvis is just a huge ear. 
 
-So possbility of hell (schizophrenia) twisted and screwed into everyone's deep belly/deep ear (via the umbilical chord)
+So the possbilities of hell (schizophrenia) twisted and screwed into everyone's deep belly/deep ear (via the umbilical chord)
 
 The belly button of everyone changes based on the star's projections of our earth going to hell.
 
