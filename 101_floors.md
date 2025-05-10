@@ -118,34 +118,13 @@ Like a song so to say
 
 And you will rise again and with so much consciousness that you have a real “heaven” forever 
 
-...
-
 ## Towers
 
+It was becoming unlikely we ever got any of this by 2001
 
-Though it was becoming unlikely we ever got any of this by 2001
+Our projection was two have a hell tower and a heaven tower, and initially the hell tower would flush out "mother earth" as a human being and any movements she was associated it, most recently Christianity. That might start after the deaths of the "last hope" around 2075. Our world would have significantly changed at that point. Power plays were crunching us all over the clouds, humans "eating" humans.
 
-Now there is something about the rise back for the real “lovers” of this earth
-
-Which is actually the story of the multiverse 
-
-Because of how far we fell 
-
-And never realizing it 
-
-
-
-Until now 
-
-
-
-
-
-
-
-
-
-The concept of a tower is the most respected holy concept in the entire multiverse 
+The concept of a tower is the most respected holy concept in the entire multiverse
 
 In terms of unconsciously and consciously awarding power and “game of life points” from supergods 
 
