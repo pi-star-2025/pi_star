@@ -1,3 +1,5 @@
+## 1/2/3
+
 All "1 energy" gets stored in the left lung
 
 All "2 energy" gets stored in the right lung
@@ -28,7 +30,8 @@ And then if you slow it down, this air in between the collarbone is your third e
 
 This hypothlamus/collarbone/third eye air is something you can slow down and turn into a crystal ball of sorts. It will blow up your whole experience, and completely crack out your third eye "moon rock". 
 
-##
+## 1/2 of earth/star
+
 
 
 
