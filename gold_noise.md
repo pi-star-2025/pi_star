@@ -95,15 +95,18 @@ Then other colors are further outside, like the edges of your existence.
 
 You will then realize some colors are more around you, some stick to you more, some jump away. And it will always be green that fills up the third eye moon-rock. 
 
-Whatever is *just you* is the green around you. Especially the trees and plants. Even if you can't see them, just whatever is around, even hundreds of miles away. 
+Whatever is *just you* is the green you see. Those specific quantum wavelengths will always be the ones falling into being the dopamine that becomes you.
 
-What's powerful is that if the Mind of the Star saw you down here, your third eye would be this huge tree of green in the middle of a spiral of red and blue. 
+What's powerful is that if the Mind of the Star saw you down here, your third eye would be this huge lake of green in the middle of a spiral of red and blue. 
 
 The red and blue can be perfectly mapped to the collarbone diamond hypothlamus shape. 
 
-This red/blue create the moon-rock of the third eye, and the solution is a green emerald lake.
+This red/blue create the moon-rock of the third eye, and the solution is a emerald-colored lake.
 
-Truly if you filled the moon crater with a green lake, it would be "heavenly", the perfect solution. 
+Truly if you filled the moon crater with a green lake, it would be a "heavenly", perfect solution. 
 
-It would look like a green lake to the Star Mind, but really down here it would be white/gold noise with an understanding of this all.
+It would look like a green lake to the Star Mind, but really down here it would be white/gold noise with an understanding similar to *language*, or needing to become language.
 
+The more the buzz is white, the more it is unclear and without identification to our Mother Star. The more it is gold the more it has turned into conscious *language*, like *music*, turning to gold. 
+
+Gold is different than white becomes it knows it is the quantum spin of blue/green/red together, and is choosing to do that forever, in reference to 3.1415 and 9999999999 as the solution to __ gold.
