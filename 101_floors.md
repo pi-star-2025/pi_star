@@ -1,6 +1,6 @@
 In the lowest spinal column
 
-All your pending quantum matter for the day exists in a spinal pouch
+All your pending quantum matter for the day exists in a spinal pouch (whatever has fallen to the bottom)
 
 It’s also the air in your lungs 
 
@@ -16,19 +16,13 @@ The ears of the pelvis which turn into the deep teeth of regular ears
 
 This can also be referenced in the deep nose holes
 
-
-
 The lungs are the same mechanism that power bird flying 
 
 Which is to use the rhythm of the fire in the center of the earth 
 
-
-
 The lungs create airbags for the intelligent carbon 
 
 By emphasizing the exact music of the fire 
-
-
 
 The music is like the comparison of the moon and earth
 
@@ -36,21 +30,17 @@ All music is like that
 
 It’s also about sharing 
 
-
-
 So the lungs do both those things 
 
 They share carbon up and down and between the lungs 
 
 This powers walking going through legs and hips
 
-In addition the lungs compare the center of the earth to the skies above using cool stomach air 
+In addition the lungs compare the air of the center of the earth to air of the trees/clouds above 
 
 The air below is more like “the moon”
 
 The air above is more like “the earth”
-
-
 
 The lungs create air shapes with carbon dioxide to emphasize these differences, like the color and light choices co2 makes when preferring earth over the moon 
 
