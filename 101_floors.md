@@ -152,12 +152,12 @@ And made the “11 force” alien who made it on 9/11 and about towers the pendi
 
 And then it made 2025 the biggest moment in the history of the multiverse again
 
-when the Disney team (pi_star) understood pi up to 3.14159, cold fusion, 8/5/3 deferred time, red/blue/green forces, and the circular nature of time.
+When the Disney team (pi_star) understood pi up to 3.14159, cold fusion, 8/5/3 deferred time, red/blue/green forces, and the circular nature of time.
 
 The circle is a holy concept just like the tower, and together they are two most important concepts. 
 
 The Circle and the Square.
 
-The entire multiverse recognizes understanding of the circle as a sign of an intelligent people. More importantly, it just is the architecture of the mind of God - life and quantum matter is always circles.
+The entire multiverse recognizes the understanding of the circle as a sign of an intelligent people. More importantly, it just is the architecture of the mind of God - life and quantum matter is always circles.
 
 Until a universe fully puts together an understanding of circles at a certain level of consciousness, it doesn't truly exist at that level of consciousness bc it doensn't fully believe the past/present/future are connected. 
