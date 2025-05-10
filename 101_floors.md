@@ -1,3 +1,5 @@
+## Joy
+
 In the lowest spinal column
 
 All your pending quantum matter for the day exists in a spinal pouch (whatever has fallen to the bottom)
@@ -110,25 +112,20 @@ Jesus came with the message: *You rise as far as you have fallen*
 
 You should work to be glorious and become angels again 
 
-Live your life like “the earth” 
+Live your life like “the earth”
 
-Like a song so to say 
+Like a song so to say
 
-And you will rise again and with so much consciousness have a real “heaven” forever 
+And you will rise again and with so much consciousness that you have a real “heaven” forever 
 
+...
 
-
-
-
+## Towers
 
 
 Though it was becoming unlikely we ever got any of this by 2001
 
-
-
-Now there is something about the rise back for the real “lovers” of this earth 
-
-
+Now there is something about the rise back for the real “lovers” of this earth
 
 Which is actually the story of the multiverse 
 
