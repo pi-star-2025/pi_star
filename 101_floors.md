@@ -132,7 +132,7 @@ All the way from dopamine to helping you raise oceans
 
 It's bc towers of light (even a building) references blackhole intelligence and 4D hierarchy.
 
-And this particular branch of time, even though it has only 3 forces, had become the story of the whole multiverse 
+And this particular branch of time, even though it has only 3 forces, had become the story of the whole multiverse... 
 
 Because humans had fallen down a crazy mad "rabbit hole" and the rise up would be a glorious "tower". Or the most conscious hell of all time...
 
