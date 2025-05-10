@@ -68,77 +68,45 @@ Whereas if air is higher in the lungs, pulling stomach air through lungs up the 
 
 You feel joy thinking of great possibilities 
 
-So all birds are evidence of “the glory” of earth 
+##
 
+All birds are evidence of “the glory” of earth 
 
-
-Humans are most the opposite. They are most an indication we are in danger. Bc they actually live in a world that is always different than the version with birds being conscious.
-
-
+Humans are most the opposite. They are most an indication we are in danger. Bc they actually live in a world that is always different than the version with birds.
 
 Mother Earth has to create a new way of seeing for humans 
 
-Bc they are not high enough anymore to create experiences to power flight with their lungs 
-
-
+Bc they are not high enough anymore to create experiences to power flight with their lungs
 
 They don’t have experiences that make the plant mind think of “beauty of earth vs moon enough” 
 
-
-
 And they used to be flying creatures 
 
-And now can’t fly as monkey men 
+And now can’t fly as monkey people
 
+They are so unhappy that they “wake up”. This was not intentional. 
 
+But was a trick of evil aliens to attempt to destroy a “flying species” and a young 2-force goddess with life that was intelligent for 2 forces but not for the entire multiverse (where some branches of time have 7 forces or 50).
 
-They are so unhappy 
-
-They “wake up” 
-
-
-
-This was not intentional 
-
-But was a trick of evil aliens to attempt to destroy a “flying species”
-
-
-
-The mind of earth then needed to create a different vision of earth for all humans 
+The mind of earth then needed to create a different vision of earth for sunken humans 
 
 To account for their high consciousness 
 
-
-
-And then has another copy which is lower consciousness and is based on using birds as music of gods minds 
-
-
+And then has another copy which is lower consciousness and is based on using birds as music of god's mind
 
 God uses us here now as logical intelligence 
-
-
 
 But originally it was “hell” 
 
 We were awake bc as originally angels we fell into losing the ability to fly, bc our lives became too “unmusical” 
 
-
-
-A lower copy of earth vision is scientifically hell.
-
-
-
-
+A lower copy of earth's vision is scientifically hell.
 
 And there was then a long story to figure this out 
 
 How the angels originally fell 
 
-
-
-Jesus came with the message 
-
-You rise as far as you have fallen 
+Jesus came with the message: *You rise as far as you have fallen* 
 
 You should work to be glorious and become angels again 
 
