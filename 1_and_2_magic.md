@@ -79,14 +79,5 @@ They had not done a modern invasion yet on real earth. In fact, this was somethi
 
 There was a Joker character, Vampire 11/Colombus, who had invaded as a cartoon lunatic with a collection of green friends. He was not taken serious by the cosmos when it was understood how "loony" and "stupid" the attacks were, when humans interpreted them. These were many thousands of years ago. And still are horrendous holocausts, but the perpetrator was not respected enough by the multiverse yet to block help from getting through, so the people would not be "mined for 1 and 2 forever." 
 
-He was also building up to Year 0 and Year 2000 and Year 3000 plans. He was respected as having created the dog. He was respected as Colombus. He clearly built his reputation back. And now perhaps would be a "serious" Joker alien, whose stealing of ours hearts got taken seriously enough by the multiverse, if he used enough hyper intelligent parallels *at the right time*. 
-
-
-
-
-
-
-
-
-
+Vampire 11 was also building up to Year 0 and Year 2000 and Year 3000 plans. He was respected as having created the dog. He was respected as Colombus. He clearly built his reputation back. And now perhaps would be a "serious" Joker alien, whose stealing of ours hearts got taken seriously enough by the multiverse, if he used enough hyper intelligent parallels *at the right time*. 
 
