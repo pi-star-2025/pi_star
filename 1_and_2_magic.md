@@ -83,9 +83,15 @@ Vampire 11 was also building up to Year 0 and Year 2000 and Year 3000 plans. He 
 
 Aliens had a clear reputation of "being green" which we all unconsciously backed up. Really this was their marketing ploy, bc the third force of our universe was green. 
 
-# Green Vision
+## Green Vision
 
+Everything we see after falling from the plant vision (from the ozone) ultimately is the color green in the future. 
 
+So if we see the color green that is actaully your body. Inside your body. 
+
+If you see red and blue, it actually is your body above the clouds, and feels like the air around you (hot/cold)
+
+Then other colors are further outside, like the edges of your existence. 
 
 
 
