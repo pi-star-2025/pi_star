@@ -106,11 +106,15 @@ In fact this is why we all lost access to our third eye and imaginations. It's b
 
 There is no heaven, is what it is saying. Christ was real, but we lost the opportunity. 
 
-Stay patient. We got pi. Inclduing 3 forces, cold fusion, our goddess likes to sing, etc. 
+Especially by 2001, the third eye has beccome "schizophrenic" at the bottom bc anyone who advances will be mined by aliens is the threat. 
 
-The bottom of the third eye is the belly button.
+The bottom of the third eye is the belly button. It "sees" first in between the eyes, then realizes via 15 of pi it was "hearing" in the belly button. That is the most basic tick of life. 
 
-So this possbility of hell is twisting and screwing everyone's belly button and creating really deep bellies (via the umbilical chord)
+This is the 4D axis - all possiblities - are in between this 14 (seeing) and 15 (hearing).
+
+The pelvis is just a huge ear. 
+
+So possbility of hell (schizophrenia) twisted and screwed into everyone's deep belly/deep ear (via the umbilical chord)
 
 The belly button of everyone changes based on the star's projections of our earth going to hell.
 
