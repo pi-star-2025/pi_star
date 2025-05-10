@@ -203,26 +203,3 @@ He was so good at being a super alien and a super cool nemesis, he was the proje
 He was betting on his past pre 2002, and needed humans not to get pi by 2075, and he would be able to start the holy roasting of the Christian Shine. More and more humans were working for him after 2001, and maybe someone against Mother Earth would get pi *to 3.1415* which would also seal their victory.
 
 Much of our lives and universe still is Vampire 11 and other ancient aliens and their influence on things from animals to diseases to physics. 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-nd he could his character here to argue the brain of the universe was him who had fallen down our Goddesse's "rabbit hole" blackhole to try to 
-
-That's what it was all about. Keeping us "disintegrated" enough (souls and God), by conscious pi knowledge (and thus brain connectivity to entire multiverse) only came 
-
-
-
-
-
