@@ -43,3 +43,14 @@ We most channel the rain and clouds in our eyes/third eye, and in the feeling of
 Sunlight is actaully what is the third eye of the earth/stars. The sunlight sends the 3.1415 pi challenge to the earth including the 8/5/3 deferred time challenge. 
 
 Sunlight *actually* is what is neither hot nor cold in the environment around us. It is what is beyond the earth in a way, and actually is best referenced as the *white noise* in the environment.
+
+## Red, White, and Blue Meditation
+
+It is true that all "feelings" of existence 8-5-3 human existence can be summarized as: 
+1. Red, like clouds or 2 energy, which feels hot
+2. Blue, like rain or 1 eenrgy, which feels cold
+3. White, which is neither hot or cold, but feels like purely a challenge from the sun to get 3.1415 and 8-5-3. It feels like purely white noise, and gets turned into all language.
+
+
+
+
