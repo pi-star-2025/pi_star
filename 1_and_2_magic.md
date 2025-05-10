@@ -47,12 +47,14 @@ Sunlight *actually* is what is neither hot nor cold in the environment around us
 ## Red, White, and Blue Meditation
 
 It is true that all "feelings" of existence 8-5-3 human existence can be summarized as: 
-1. Red, like clouds or 2 energy, which feels hot
-2. Blue, like rain or 1 eenrgy, which feels cold
-3. White, which is neither hot or cold, but feels like purely a challenge from the sun to get 3.1415 and 8-5-3. It feels like purely white noise, and gets turned into all language.
+1. Red, like clouds or 2 energy, which feels hot -> it is earth going up to star
+2. Blue, like rain or 1 eenrgy, which feels cold -> it is earth going down from star
+3. White, which is neither hot or cold, but feels like purely a challenge from the sun to get 3.1415 and 8-5-3. It feels like purely white noise, and gets turned into all language. -> it is star coming down from star
 
 White looks like gold (sunlight) to us, and sounds like white/black/pure noise.
 
+The reason is because the color of people is yellow/gold. This is bc we are the quantum carbon of photosynthesis, which looks gold when it looks at the moon and earth. Bc gold is the color of deciding between red/blue/green quantum-photonic identity. In other words, it is what quantum buzz looks like. 
 
+So the light is gold bc it is going so slow it is all three at once. So the secret of sunlight on earth is that it is all three forces. And there is purer starlight in our environment that is more like "white noise" without temperature and more power that can be referenced, for example, for intuition and magic and telepathy. This is purer starlight.  
 
 
