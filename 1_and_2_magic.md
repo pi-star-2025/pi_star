@@ -36,7 +36,7 @@ The clouds are all the "2 energy" of the earth/star. It's everything incorrect a
 
 These clouds get into our own hypothlamus, mixing with our own opinons and becoming our own opinions. And we then sync up with the earth and fall asleep as everyone does. And if we don't, it feels like we are getting attacked by the alpha clouds, which are all the false gods of the world. They are given power by an alien (Vampire 11/"Colombus"). They are told to just keep "passing the baton" of power putting people to sleep. Live in the moment and live by alpha/beta like Rome. 
 
-
+Rain is all the "1 energy" of the earths/star. It's everything incorrect about "beta" opinions of people down here, as determined by the earth/star. It literally is the rain formation and rain drops that fall from the skies. Like the way we go 1, it happens in cyclical ways, and snow provides more detailed information which has a "magic" to it. Because the specific patterns of the snowflakes is truly information about social relationships of souls. It's incorrect inforamtion, which is valuable when it's so clearly articulated with geometry. 
 
 
 
