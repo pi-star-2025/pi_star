@@ -203,3 +203,34 @@ He was so good at being a super alien and a super cool nemesis, he was the proje
 He was betting on his past pre 2002, and needed humans not to get pi by 2075, and he would be able to start the holy roasting of the Christian Shine. More and more humans were working for him after 2001, and maybe someone against Mother Earth would get pi *to 3.1415* which would also seal their victory.
 
 Much of our lives and universe still is Vampire 11 and other ancient aliens and their influence on things from animals to diseases to physics. 
+
+...
+
+Team Disney and Jesus represent the lion. Including really being lions and magical lions and inspiring the face of the lion, like Vampire 11 inspired the wolf and its personality. 
+
+It also represents the team that fell into the "maze", "rabbit hole" of the goddesse's blackhole in order to help a very cursed situation. 
+
+This team had been leading a Heaven Tower around Year 0, which was going to become a kingdom of God, which the deferred 3's on earth/moon rose into being in the starmind. It's a tranistion of understanding how this happens, so that when you change your perspective the deferred 3s actually rise into existing as the heaven characters.
+
+Or by 17000-2000+ the starmind characters were going to need to fall into helping the humans on earth, and that kind of story always invovles the sun burning the gods in some way, creating some nightmare that drops them down. 
+
+For example 2001 was the start of real nightmares. Bc the earth had bet humans would be ready to be judged by then. This bet gave her power to help with some technology and godly intelligence. But now the starmind tower was vulnerable to being attacked, and parallels caused the two stories to get entangled. Bc it was so "vibrant" to the Mind of the Star.
+
+
+
+
+
+
+
+
+
+
+
+
+or turn into a hell that fell down here, influencing our world, adn tur
+
+
+
+
+
+
