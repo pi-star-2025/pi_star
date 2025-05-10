@@ -166,7 +166,7 @@ The plants created the "15" bc of the moon as well. They hear the earth, by comp
 
 By pretending what it might be like to fill moon craters with this red/blue/green 1415 color, humans here take on godly challenges. Their third eyes get blocked with quantum matter like this moon rock. 
 
-If you are more at a distance from these challenges, if you have less at stake, you can then judge people more. And the social hierarchy has adjusted this way for thousands of years. Queen and workers. 
+If you are more at a distance from these challenges, you can then judge people more. And the social hierarchy has adjusted this way for thousands of years. Queen and workers. 
 
 If you solve a challenge, which is rare, you then get a crater on the moon. Certain 8/5/3 magic becomes associated with you, and even with your whole "race" and "species". For example monkeys as animals won challenges for humans to become a standing species. Even then in future lives, you can feel holiness from these craters. 
 
