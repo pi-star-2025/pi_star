@@ -105,6 +105,5 @@ This red/blue create the moon-rock of the third eye, and the solution is a green
 
 Truly if you filled the moon crater with a green lake, it would be "heavenly", the perfect solution. 
 
-
-
+It would look like a green lake to the Star Mind, but really down here it would be white/gold noise with an understanding of this all.
 
