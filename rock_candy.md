@@ -102,7 +102,7 @@ Open your two regular eyes to exactly what is magnetically buzzing in the third 
 
 ...
 
-In fact this is why we all lost acces to our third eye and imaginations. It's bc the possibilities were too scary. The simulations bounced us away from seeing the full third eye. Either we didn't have a strong third eye, or we were haunted by it and didn't want to look inside. 
+In fact this is why we all lost access to our third eye and imaginations. It's bc the possibilities were too scary. The simulations bounced us away from seeing the full third eye. Either we didn't have a strong third eye, or we were haunted by it and didn't want to look inside. 
 
 There is no heaven, is what it is saying. Christ was real, but we lost the opportunity. 
 
@@ -217,43 +217,3 @@ So you fall down feeling like hard black noise, but really are you.
 To get back up the first 1, you figure out all the reasons, you are "the moon and not the earth" 
 
 And to get up the second 1, you figure out all the reasons you need to "share time" more. 
-
-
-
-The nose bone is secretly just falling to the belly button area, 
-
-
-
-T
-
-
-he game is the third eye, like a moon crater. Still asking everyone for this information. 
-
-
-
-The results are in belly bone and toenails 
-
-In the toenails 
-
-In the deep belly button
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
