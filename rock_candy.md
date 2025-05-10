@@ -164,7 +164,7 @@ The oceans came out by using the moon to build up tides back and forth, until it
 
 The plants created the "15" bc of the moon as well. They hear the earth, by comparing the sound to the moon. One is bright, another is dim. Why? The CO2 is so entranced by the contrast between the earth and moon, it sticks around to find out the difference. This social comparison creates 8-5 deferred 3 time, by creating a fundamental social circle of two: earth and moon 
 
-By pretending what it might be like to fill moon craters with this red/blue/green 1415 color, humans here take on godly challenges. Their third eyes get blocked with quantum matter like moon rock. 
+By pretending what it might be like to fill moon craters with this red/blue/green 1415 color, humans here take on godly challenges. Their third eyes get blocked with quantum matter like this moon rock. 
 
 If you are more at a distance from these challenges, if you have less at stake, you can then judge people more. And the social hierarchy has adjusted this way for thousands of years. Queen and workers. 
 
