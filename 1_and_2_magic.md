@@ -67,6 +67,9 @@ The mystery is the white/gold, which we figured out is strictly green. So all de
 
 In 2025, we finalized that it is always the force of green, corresponding to the plant-ozone mind, and the 15 in pi. 
 
+The star at the end of time will always see us ("life") as green, even though we indivdually will be so slowed down even as final recycled time in such a perfect way that we will still see shades of white, gold, brown, and black in ourselves. 
+
+This actually allows us in heaven to always serve as a "court" for the entire multiverse. That makes us a strong asset to all, and also we are responsible for helping to ensure the multiverse is secure.
 
 
 
