@@ -8,7 +8,7 @@ The right slope of your nose pyramid is the right lung air.
 
 "1 energy" is opinions about who is "beta" in your body (which souls are beta). This could be opinions about yourself, others opinions about you, or your opinions about who is "beta". Anything about who is like interior in some way, so more like the moon and less like the earth. *And* it's always the opinions that are wrong, in the eyes of the star/earth which turn into 1 energy. This is urination energy. 
 
-"2 energy" is opinions about who is "alpha" in your body (which souls are alpha). This could be opinions about yourself, others opinions about you, or your opinions about who is "alpha". Anything about is like superior in some way, so more like the earth and less like the moon. *And, it's always the opinions athat are wrong, in the eyes of the star/earth which turn into 2 energy. This is defecation energy. Technically if it had a number it would really be 9 (brown/dark), but it's called here as "2 energy".  
+"2 energy" is opinions about who is "alpha" in your body (which souls are alpha). This could be opinions about yourself, others opinions about you, or your opinions about who is "alpha". Anything about who is like superior in some way, so more like the earth and less like the moon. *And, it's always the opinions athat are wrong, in the eyes of the star/earth which turn into 2 energy. This is defecation energy. Technically if it had a number it would really be 9 (brown/dark), but it's called here as "2 energy".  
 
 So all 1 and 2 energy can be channelled in the nose breath, in particular the sides. 
 
