@@ -208,7 +208,16 @@ In other words, it picks a final number to always be, forever. That is truly the
 
 And then if you truly have a story, where your characters and story are brought to life by everyone, bc they are essential to everything, then you exist forever. 
 
-When this happens, you "shine". This means you are blue light, 4-sided photonic light in every single branch of time.
+When this happens, you "shine". This means you are blue light, 4-sided "photonic light" in every single branch of time.
+
+For new gods/goddesses it is typical to use Blue as the second force, as did our core goddess. This meant she used a mirror of Everyone to see herself (as a force of red, all her matter committed to this force)
+
+...
+
+In the end, our final pi will: 
+1) Update the characters outside the blackhole, such as the core goddess (the firestarter), Jesus, good/bad aliens, create new gods/goddesses in the higher dimension, etc. 
+2) Create a blue shine, by adding to the force of everything. Anything that ends as a final number can do this. And if enough branches of time see our final pi as important enough it naturally will be "reflected" by them and live forever as a heaven. Only because we are important enough to everyone. And the core reason is super high consciousness in a world that still has circular intelligence. The best examples are music and sunlight that is gold (meaning it is conscious).
+
 
 
 
