@@ -50,13 +50,15 @@ Like a pretzel, or infinity sign
 
 All over the body, including the navel belly button. 
 
-Bc pi has a "knot" in it, to explain 8-5-3 deferred time, and it’s also explained visually with deltas. 
+Bc pi has a "knot" in it, to explain 8-5-3 deferred time, and it’s also explained visually with deltas.
+
 The double explanation (linear numerical and calculus of geometry) emphasizes the message. 
 
 The infinity shape is how the 5-sided light looks to be quantumly 8.
+
 Kind of like 2 eyes. 
 
-Bc our eyes are constantly doing trillions of 8-5-3 exchanges each second. 
+Our eyes are constantly doing trillions of 8-5-3 exchanges each second, tying up the mind in consciousness.
 
 And all over our body, we have these 8-5-3 pretzels. 
 
@@ -70,8 +72,6 @@ Smaller wavelengths look like smaller pretzels.
 Larger wavelengths more and more are like triangle pretzels, which have additional curvature. Almost like castles. 
 
 The secret is they actually look like the shape of our chest/back. And also the shape of our nose. 
-
-One is hard, one is soft. 
 
 …
 
