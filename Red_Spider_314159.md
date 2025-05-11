@@ -50,7 +50,7 @@ Like a pretzel, or infinity sign
 
 All over the body, including the navel belly button. 
 
-Bc pi has an 8 in it, to explain 8-5-3 deferred time, and it’s also explained visually within the number. 
+Bc pi has a "knot" in it, to explain 8-5-3 deferred time, and it’s also explained visually with deltas. 
 The double explanation (linear numerical and calculus of geometry) emphasizes the message. 
 
 The infinity shape is how the 5-sided light looks to be quantumly 8.
