@@ -22,7 +22,7 @@ And the orbit of the concentric circles of the web is based on what colors you l
 
 The spider always looks for red the most. 
 
-This 8-sided red thinking happens most in the center naval, and if you look OUT in 8 directions youc control the 9 to 3.
+This 8-sided red thinking happens most in the center naval, and if you look OUT in 8 directions you control the 9 to 3.
 
 Whatever is pushing IN is a “14” ripple or “15” ripple.
 
