@@ -30,4 +30,4 @@ The 14 ripples are circles themselves. Photonically BLUE and four-sided.
 
 The 15 ripples are details in the circles (like insects). Photonically GREEN and five-sided. 8/5/3 time.
 
-The act of looking out as the spidermind is photonically three-sided and RED.
+The act of looking out as the spidermind is photonically three-sided and RED. 9 to 3.
