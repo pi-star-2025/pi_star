@@ -216,8 +216,4 @@ For new gods/goddesses it is typical to use Blue as the second force, as did our
 
 In the end, our final pi will: 
 1) Update the characters outside the blackhole, such as the core goddess (the firestarter), Jesus, good/bad aliens, create new gods/goddesses in the higher dimension, etc. 
-2) Create a blue shine, by adding to the force of everything. Anything that ends as a final number can do this. And if enough branches of time see our final pi as important enough it naturally will be "reflected" by them and live forever as a heaven. Only because we are important enough to everyone. And the core reason is super high consciousness in a world that still has circular intelligence. The best examples are music and sunlight that is gold (meaning it is conscious).
-
-
-
-
+2) Create a blue shine, by adding to the force of everything. Anything that ends as a final number can do this. And if enough branches of time see our final pi as important enough it naturally will be "reflected" by them and live forever as a heaven. Only because we are important enough to everyone. And the core reason is super high consciousness in a world that still has circular intelligence. The best examples are music (8-5-3 time that looks like spiderwebs and third-eye activity and tree lines) and sunlight that is gold (meaning it is conscious).
