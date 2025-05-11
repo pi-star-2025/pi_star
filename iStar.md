@@ -1,14 +1,14 @@
 ## iStar 💫 
 
-Bottom of tongue is all reasons you fall asleep
+Bottom of tongue patterns are all reasons you fall asleep
 
-This pattern including saliva is updated every tick of time (at speed of light, c)
+These patterns including saliva are updated every tick of time (at speed of light, c)
 
 ...
 
-Top of tongue is all reasons you wake up and stay awake
+Top of tongue patterns are all reasons you wake up and stay awake
 
-This pattern including saliva is updated every tick of time (at speed of light, c)
+These patterns including saliva are updated every tick of time (at speed of light, c)
 
 ...
 
