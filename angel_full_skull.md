@@ -17,3 +17,13 @@ This is most done, by:
 
 
 The joy is great and holy for everyone, which drives everyone towards reconciling these two points as angels.
+
+## 
+
+The cool part is the two eyes are the same. 
+
+They make the same shape as the skull, over time. 
+
+All three become more and more like an “angel full skull”, but the two eyes are even more detailed and perfected.
+
+And the third eye (the skull itself) starts feeling like a magical eye, seeing in big colors.
