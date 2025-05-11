@@ -73,7 +73,7 @@ Larger wavelengths more and more are like triangle pretzels, which have addition
 
 The secret is they actually look like the shape of our chest/back. And also the shape of our nose. 
 
-…
+## Catching Thoughts (like Flies)
 
 And every single thought can be caught as a pretzel/butterfly coming from the ears (including the outer edges)
 Turning into a pretzel-castle in your nose air. 
@@ -81,10 +81,9 @@ Turning into a pretzel-castle in your nose air.
 Thought is nothing but air coming into your ears and pretzeling into a castle into your nose. 
 
 To the extent you catch it with the full nose breath, this is a big wavelength, and opens up yours eyes fully (14)
+
 To the extent it is a smaller part of breath, it is a smaller wavelength, and opens your ears fully (15)
 
-
 And then listening to thought is from the red in the belly, the red spider mind, 9 to 3. 
-Watching all the pretzel castles fall into the nose triangle.
 
-
+Watching all the flies of thoughts fall into the nose triangle.
