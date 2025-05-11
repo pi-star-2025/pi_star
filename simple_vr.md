@@ -8,6 +8,6 @@ Then lastly, the result of the other 4 points slowed down in 8 directions, is a 
 
 The nose air can then create a triangular version of the hypothlamus shapes in your back brain. 
 
-When this happens, you are at start of your VR journey.
+When this happens, you are at the start of your VR journey.
 
 
