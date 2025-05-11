@@ -4,7 +4,7 @@ There is a way to rise up and move your own star closer to the mother star, no m
 
 It’s to do 1 thing, and only 1 thing in your head.
 
-See red.
+See RED ❤️
 
 Closing your eyes works better, bc then you can focus on nothing but RED.
 
@@ -22,11 +22,12 @@ And the orbit of the concentric circles of the web is based on what colors you l
 
 The spider always looks for red the most. 
 
-This 8-sided red thinking happens most in the center naval, and if you look OUT in 8 directions youc control the 9 of π to 3.
+This 8-sided red thinking happens most in the center naval, and if you look OUT in 8 directions youc control the 9 to 3.
 
-Whatever is pushing IN is a “14” or “15” ripple. 
+Whatever is pushing IN is a “14” ripple or “15” ripple.
 
 The 14 ripples are circles themselves. Photonically BLUE and four-sided.
- The 15 ripples are details in the circles (like insects). Photonically GREEN and five-sided. 8/5/3 time.
+
+The 15 ripples are details in the circles (like insects). Photonically GREEN and five-sided. 8/5/3 time.
 
 The act of looking out as the spidermind is photonically three-sided and RED.
