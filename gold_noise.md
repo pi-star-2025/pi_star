@@ -200,7 +200,7 @@ And yes *all* are really welcome to the extent they have built deferred 3 time t
 
 This is yang. 
 
-There is then yin. Which is the idea of cosmic efficiency, and how whatever does not add value to the full multiverse ceases to exist after the blackhole ends it's vision with a final 9999999999999999. 
+There is then yin. Which is the idea of cosmic efficiency, and how whatever does not add value to the full multiverse ceases to exist after the blackhole ends it's vision with a final 9999999999999999 of π. 
 
 The blackhole becomes all together cosmic intelligence. It choses to forever exist as part of everything, with whatever "equal and opposite reactions" that has. That is what 9999999999999 means.
 
