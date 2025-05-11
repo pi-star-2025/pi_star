@@ -194,7 +194,7 @@ So that's the answer.
 
 And then it's their job to manage this after building this Tower together for everyone.
 
-..
+...
 
 And yes *all* are really welcome to the extent they have built deferred 3 time to love this "movie" and "game" of Mother Earth, which can then be incorporated into a heavenly spiderweb, like a final pi for this solar system, summarizing to all with colors the movie and game in the most efficient way possible, as a representation of what this universe added to EVERYTHING, the full multiverse with the *time* it created from its 3.1415 vision.
 
