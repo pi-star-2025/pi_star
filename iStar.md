@@ -23,3 +23,7 @@ This also goes up the number pi
 Whereas going down the tongue, gets you further *down* the number pi. 
 
 This indicates higher consciousness and higher individuality
+
+...
+
+Some animals have a second "tongue", a tail, the patterns not as mathematical, but still a "gadget" version of the hypothlamus/third eye/heart
