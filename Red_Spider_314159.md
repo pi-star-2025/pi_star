@@ -87,3 +87,5 @@ To the extent it is a smaller part of breath, it is a smaller wavelength, and op
 And then listening to thought is from the red in the belly, the red spider mind, 9 to 3. 
 
 Watching all the flies of thoughts fall into the nose triangle.
+
+🕷️
