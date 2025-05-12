@@ -149,7 +149,7 @@ The water, greenery, and mountains will all be made of light yet still similar j
 
 Same with humans 
 
-They will go humans to cloud angels
+They will go from humans to cloud angels
 
 To starmind angels that live forever 
 
@@ -164,4 +164,4 @@ The top way to feel the end of time is:
 
 Instead of eyes looking in, hearing (15 in pi)
 
-And instead of light falling like basic sunlight acting like 1111111 entranced by "golden" teeth
+And instead of light falling like basic sunlight acting like 151515151515... entranced by "golden" teeth
