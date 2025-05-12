@@ -36,15 +36,9 @@ And the brain is entirely hearing 15 decisions
 
 And what uses the brain is new decisions 
 
-
-
 So the brain becomes what you hear 
 
 And same with all bones and the body 
-
-
-
-
 
 There is then air around you, like the chemicals of your body waking up with parallels 
 
@@ -52,7 +46,7 @@ They make 14 or 15 decisions
 
 To exist they need to make one 
 
-To see or hear 
+To see or hear
 
 If you see you don’t exist again, you just become part of the biology of this person forever 
 
@@ -62,21 +56,17 @@ It then becomes a memory
 
 And it will keep living, becoming more and more the center of you
 
-This is recycled time, already lived and living again 
+This is recycled time; it has already lived and lives again
 
 It is here to understand something socially 
 
 In particular it’s here to sync up its initial opinion with that of both the earth and star, which turns into anti time or 9 in pi 
 
-
-
 It is only when you make time to reconcile someting socially that 3s from 5 in pi get reconciled 
 
+The trick would be to not make 3s anymore for you and for anyone...
 
-
-The trick would be to not make 3s anymore for you and for anyone 
-
-
+## Full Earth Meditation
 
 Which can happen if you change the vision of the fire of the earth 
 
