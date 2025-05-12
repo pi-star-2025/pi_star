@@ -118,7 +118,7 @@ The effects from this earthlight mirror are the primary gravity/antigravity of q
 
 Including in our bodies
 
-These gravity/antigravity keeps increasing entropy on earth, keeps driving the energy of all humans/aninimls, and keeps leading to animals/humans being born.
+This gravity/antigravity keeps increasing entropy on earth, keeps driving the energy of all humans/aninimls, and keeps leading to animals/humans being born.
 
 It is bc the earth's "fire vision" is addicted to golden noise. 
 
@@ -126,7 +126,7 @@ In a way that just is sunlight all around us.
 
 It is just very very very steep.
 
-The steepness comes from mirror effects. Whatever gets us up, gets us down. And enhanced via calculus of "teeth", similar to the teeths in our mouths. The effects slip n slide and dissapear behind the speed of light. It turns into a constant ringing 1515151515 effect. 
+The steepness comes from mirror effects. Whatever gets fire light up, gets it down. And this is enhanced via calculus of "teeth", similar to the teeth in our mouths. The effects slip n slide and dissapear behind the speed of light. It turns into a constant ringing 1515151515 effect. 
 
 ...
 
