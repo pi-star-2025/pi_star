@@ -4,51 +4,29 @@ If you make more 14 decisions to see
 
 And less 15 decisions to hear 
 
-
-
 Starting with eyes 
 
 But then flowing everywhere 
-
-
 
 You enter the the 14 simulation “dimension” above 
 
 Like any kind of projection starts to live there
 
-
-
 And then with continuous 14 decisions 
-
-Or even just 9 to not see or hear 
-
-
 
 You keep getting pulled back to the 3
 
-
-
-
-
 Your eyes make three choices 
 
+1) See outside 14, to see 
 
-
-Stay still 9
-
-See outside 14, to see 
-
-Or look back 15, to hear 
-
-
+2) Look back 15, to hear and fall out of simulation
+   
+3) Go up, by reconciling 8-5-3 time (syncing "socially" with the starmind) 
 
 And your soul in a way is all nested eyes with this operating system
 
-
-
-
-
-
+...
 
 This creates the majority of your brain
 
