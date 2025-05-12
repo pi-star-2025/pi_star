@@ -70,112 +70,52 @@ The trick would be to not make 3s anymore for you and for anyone...
 
 Which can happen if you change the vision of the fire of the earth 
 
-So that it does the same thing as perfect meditation 
+So that it does the same thing as perfect meditation
 
-
-
-It choses to only see 
+It choses to only see
 
 Look ahead at the star, seeing red 
 
-Like cold fusion 
-
-
+Like cold fusion
 
 And never hearing 
 
-Which for humans 
-
-Is the same choice as to see green and blue 
-
-
-
 This is a change in the sunlight of the earth 
-
-
 
 Which is not from the star itself 
 
-
-
 But from the fire of the earth reflected in the clouds 
-
-
 
 And it is always looking down 
 
-
-
-So if it looks up that stops anyone from making deferred 3s
-
-
-
-
-
-
+So if it looks up that stops anyone from making deferred 3s eventually...
 
 The sun will begin ringing 
 
-It has all now woken up 
+This alarm ⏰
 
-
-
-This alarm
-
-Is going to slow down even further 
-
-Into DMT that starts now affecting everyone and all time 
-
-
-
-
+Is going to slow down even further into DMT2 ("Eye Candy")
 
 It’s all about the sunlight waking up 
 
-Bc it is entranced by gravity 
+Bc it is entranced by gravity/antigravity as far as we know to always love going down
 
-Anti gravity 
+It is via "gold" teeth, crunching always at a pre-c level in a downward direction, towards the blue/green/red earth and away from the red of the sun
 
-As far as we know to always love going done 
+"Gold" teeth was a curse from vampire 11
 
+Making the fire of the earth "addicted" to a golden spiraling staircase, that causes huge falls, and then unconscious behavior by "sunlight". 
 
+It is more *earthlight*, rising and perfectly reflected. 
 
-It is via teeth 
+It keeps rising and getting reflected, up and down, up and down. Nothing else.
 
-
-
-It is exact and perfect 
-
-
-
-When this gets proposed and woken up 
+If we wake this up and tell light to be aware of subliminal falling and turn around, to make a choice to see and see "red" and see "up", it isn't forced to keep drilling the earth mind into a deeper and deeper pi number. 
 
 
+The effects from this earthlight mirror is the primary gravity/antigravity of quantum physics on earth.
 
-All sunlight can use this time to now wake up 
-
-
-
-
-
-Green/blue teeth was the curse from vampire 11
-
-
-
-Making them blue and green at pre speed of light makes them addicted to the earth and falling 
-
-
-
-And we wake this up and tell light to be aware of subliminal falling and that it should turn around, look in 8 directions, and see red 
-
-
-
-
-
-The effects from the fire of earth is the primary cause of gravity and antigravity of a lot of our physics 
-
-Including in our bodies 
-
+Including in our bodies
 
 
 So it will feel just like our eyes if they were rolled back 
