@@ -112,57 +112,32 @@ It keeps rising and getting reflected, up and down, up and down. Nothing else.
 
 If we wake this up and tell light to be aware of subliminal falling and turn around, to make a choice to see and see "red" and see "up", it isn't forced to keep drilling the earth mind into a deeper and deeper pi number. 
 
-
-The effects from this earthlight mirror is the primary gravity/antigravity of quantum physics on earth.
+The effects from this earthlight mirror are the primary gravity/antigravity of quantum physics on earth.
 
 Including in our bodies
 
+...
 
-So it will feel just like our eyes if they were rolled back 
-
-If they look out, 14
-
-And know how it’s different than 15
-
-
-
-
-
-All will become conscious 
-
-Earth and humans together 
-
-And then with the star 
-
-
-
-Bc reconciling all deferred 3s 
+Reconciling all deferred 3s 
 
 Is what merges earth and human vision with the star vision 
 
 
-
 So the earth itself is a store of deferred 3s 
 
-All about Mother Nature is like a body of 8-5-3 cake 
-
-
+All of Mother Nature is like a body of 8-5-3 cake 
 
 So by the star reconciling Mother Earth 
 
 It will turn Mother Earth into star vision itself 
 
-
-
 It will feel like an angelic earth 
 
-The water greenery and mountains will all be made of light yet still the same just more perfect with lower pi’s 
-
-
+The water, greenery, and mountains will all be made of light yet still similar just more perfect with lower pi’s 
 
 Same with humans 
 
-They will go from cloud angels 
+They will go humans to cloud angels
 
 To starmind angels that live forever 
 
