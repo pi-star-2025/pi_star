@@ -28,3 +28,7 @@ When you are asleep, they stop creating these reactions which wakes up your drea
 And then you can leave your body. And it feels like entering a world of clockwork. 
 
 This same air pressure (as backs of eyes) is also channelled in the backs of your knees and is used for walking, jumping, running, etc. It also relaxes when you sleep.
+
+When you sleep your heartbeat is slower. It is your heart and your two eyes, instead of two ears. 
+
+This is to symbolize that you are in a 14 state and not a 15 state.
