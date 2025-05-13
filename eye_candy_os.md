@@ -128,7 +128,7 @@ It keeps repeating around you, creating a golden circle of red/blue/green. That'
 
 The golden circle around is the world you see around you. 
 
-When you are alive it is extremely quantum, buzzing with so much possiblity from 8-5-3 deferred time. It's why you feel so alive, and the two falls down 14 and 15 feel so fast and automatically.
+When you are alive it is extremely quantum, buzzing with so much possiblity from 8-5-3 deferred time. It's why you feel so alive, and the two falls down 14 and 15 feel so fast and automatic.
 
 You can sync up this golden circle with the same geoemtrical patterns as your two eyes, skull, belly button, and pelvic bone. As you sync up more with the earth mind, all become more similar. 
 
