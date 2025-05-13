@@ -121,7 +121,7 @@ Sunlight, Clouds, Body.
 
 Eyelashes, Eye whites, eye color/blacks.
 
-It keeps repeating around, creating a golden circle of red/blue/green. That's how the star would see it.
+It keeps repeating around you, creating a golden circle of red/blue/green. That's how the star would see it.
 
 
 ## 
