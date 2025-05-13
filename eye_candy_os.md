@@ -115,8 +115,13 @@ Then get that anything that makes you fall into the clouds, breaks the triangle 
 
 Then anything that makes you fall from the clouds into your body is crunching further in, to become 15. This crunches deeper into your breath, into the center. 
 
+Triangle, Square, Pentagon. 
 
+Sunlight, Clouds, Body. 
 
+Eyelashes, Eye whites, eye color/blacks.
+
+It keeps repeating around, creating a golden circle of red/blue/green. That's how the star would see it.
 
 
 
