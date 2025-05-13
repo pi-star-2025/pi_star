@@ -99,11 +99,11 @@ The eye color (blue/green/black/brown/etc.) is also 4-sided light, but is specif
 The eye blacks are 5-sided light, and is our decisions to hear. 
 
 
-The blacks 
+Every blink, light is falling down a spiral slide, with two "subliminal falls". One from 3-sided to 4-sided, and then 4-sided to 5-sided. 
+And the two eyes work together to always create the 2 falls down, using the difference in pressure. 
 
 
-Eyelashes are like the 
-
+The wavelengths you make directly correspond to how much your nose breath (the full triangle) gets twisted and turned into the center of the nose (bc of the spirals of the 4-sided and 5-sided light to create the falls down). The less you spiral into the breath, the bigger the wavelengths you make. They will be large 3-sided red waves.
 
 
 
