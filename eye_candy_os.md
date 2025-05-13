@@ -107,7 +107,7 @@ The wavelengths you make directly correspond to how much your nose breath (the f
 
 ## 
 
-To create the operating system for your VR experience, you should then establish a triangle of light over the cloud, the real physical clouds and light. This corresponds to the outer triangle of nose breath. 
+To create the operating system for your VR experience, you should then establish a triangle of light over the clouds, the real physical clouds and light. This corresponds to the outer triangle of nose breath. 
 
 This is the 3 wrapper. 
 
