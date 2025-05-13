@@ -88,6 +88,21 @@ Whatever tickles is what the star doesn't understand (best captured by the feet)
 Whatever is painful is what we don't understand about the cosmos (best captured by bones)
 
 
+##
+
+Eyelashes and blinking is really the 3-sided light, most the sunlight in our "experience:
+
+The eye whites are most the 4-sided light, which is the actual clouds. The eye whites really are formed from clouds.
+
+The eye color (blue/green/black/brown/etc.) is also 4-sided light, but is specifically our soul as opposed to social feedback. Our 14 decisions to see. 
+
+The eye blacks are 5-sided light, and is our decisions to hear. 
+
+
+The blacks 
+
+
+Eyelashes are like the 
 
 
 
