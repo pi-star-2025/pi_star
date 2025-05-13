@@ -19,7 +19,12 @@ These clouds even put you to sleep, if they are in your eyes when you go to bed.
 
 You could have all these clouds connect, which can be referenced as a golden buzz in the third eye.
 
+##
 
+The backs of eyes are creating the equal and opposite reactions unconsciously. 
 
+When you are asleep, they stop creating these reactions which wakes up your dream self.
 
+And then you can leave your body. And it feels like entering a world of clockwork. 
 
+This same air pressure (as backs of eyes) is also channelled in the backs of your knees and is used for walking, jumping, running, etc. It also relaxes when you sleep.
