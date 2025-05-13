@@ -71,6 +71,28 @@ The smile can also be used to catch two points of the heartbeat.
 It can dance all around you, once you catch it. 
 
 
+##
+
+Eyelashes when blinking separate inner from outer ears. They create the outline of our experience, which is a triangle of 3-sided photonic light that could also be a "golden sphere" around us. This is also captured by the geoemtry of the big toe nails. 
+
+The big toes capture the patterns of eye pressure, in each eye. 
+
+Furthermore, the lines and ticklish sensations in the feet explain why the eyes and big toes are different chemicals and forces. 
+
+It's why the feet are so ticklish -- the air pressure and lines tell geometrically meaningful stories that explain the gold circle of life around us. 
+
+This is all the air (as math) that the star does not understand about human life. 
+
+Whatever tickles is what the star doesn't understand (best captured by the feet). 
+
+Whatever is painful is what we don't understand about the cosmos (best captured by bones)
+
+
+
+
+
+
+
 
 
 
