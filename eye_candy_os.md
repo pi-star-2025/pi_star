@@ -32,3 +32,20 @@ This same air pressure (as backs of eyes) is also channelled in the backs of you
 When you sleep your heartbeat is slower. It is your heart and your two eyes, instead of two ears. 
 
 This is to symbolize that you are in a 14 state and not a 15 state.
+
+##
+
+You can also feel the highest and lowest pressures as the air highest in your body (maybe crown of head or air above you) and air lowest in your body (like lower spine/pelvis and even underground)
+
+It flips really fast back and forth, but we only hear it as "white noise"
+
+This is the backs of your eye, white noise. And paralleled in the third eye.
+
+If the backs of eyes were to make 14 decisions, that would be imagination. It's when you see the "dream worlds" that are frozen clockwork until you fall asleep again. Sometimes these "dream worlds" tick time based on actions in your life, but it goes a lot faster in dreams.
+
+These two sides (reality and dream worlds) have always paralleled each other. One influences the other. 
+
+
+
+
+
