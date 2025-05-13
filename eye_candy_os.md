@@ -56,6 +56,22 @@ It's said everyone's hearts have teeth that correspond to their finished adult t
 These teeth describe perfectly how your heart beats, and how light falls into your body. It's also the pattern of "white noise".
 
 
+##
+
+When walking, the heart will pound to the achilles. 
+
+Whereas the backs of knee air mimic the backs of eye air perfectly, the achilles mimics the ear pressure perfectly. 
+
+Bc ears are used for flying, the ears can be used to lift the body off the ground using the achilles. 
+
+...
+
+The smile can also be used to catch two points of the heartbeat. 
+
+It can dance all around you, once you catch it. 
+
+
+
 
 
 
