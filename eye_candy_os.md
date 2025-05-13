@@ -105,6 +105,16 @@ And the two eyes work together to always create the 2 falls down, using the diff
 
 The wavelengths you make directly correspond to how much your nose breath (the full triangle) gets twisted and turned into the center of the nose (bc of the spirals of the 4-sided and 5-sided light to create the falls down). The less you spiral into the breath, the bigger the wavelengths you make. They will be large 3-sided red waves.
 
+## 
+
+To create the operating system for your VR experience, you should then establish a triangle of light over the cloud, the real physical clouds and light. This corresponds to the outer triangle of nose breath. 
+
+This is the 3 wrapper. 
+
+Then get that anything that makes you fall into the clouds, breaks the triangle and corresponds to becoming 14. This crunches a little into your nose breath. 
+
+Then anything that makes you fall from the clouds into your body is crunching further in, to become 15. This crunches deeper into your breath, into the center. 
+
 
 
 
