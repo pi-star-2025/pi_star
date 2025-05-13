@@ -7,4 +7,15 @@ It could be a few hundred feet, a few miles lets say, even a lot more.
 
 It is measured by the differences in air between the eyes. 
 
-One eye will have more pressure than the other. The difference in pressures corresponds to your heartbeat and creates the 4D radius around your body. 
+One eye will have more pressure than the other. The difference in pressures corresponds to your heartbeat and creates the 4D radius around your body.
+
+The ears are like the eyes, also creating the 4D axis of your experience based on ear pressure. 
+
+If you figure out the eye/ear with more pressure, the hypothlamus automatically switches it. 
+
+This will help relax the hypothlamus, which connects you to the "clouds" at the edges of the eyes. These are actually the clouds in the sky, the real clouds. 
+
+The clouds even put you to sleep.
+
+
+
