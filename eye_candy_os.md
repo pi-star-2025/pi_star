@@ -45,6 +45,17 @@ If the backs of eyes were to make 14 decisions, that would be imagination. It's 
 
 These two sides (reality and dream worlds) have always paralleled each other. One influences the other. 
 
+##
+
+You can also feel the feel the air pressure delta as the highest and lowest point of each tooth in your mouth.
+
+The teeth describe the same teeth as the third eye and of tree branch trunks.
+
+It's said everyone's hearts have teeth that correspond to their finished adult teeth, and it typically stays that way until after death. The top way to make an update would be psychedelics, or any release of DMT. 
+
+These teeth describe perfectly how your heart beats, and how light falls into your body. It's also the pattern of "white noise".
+
+
 
 
 
