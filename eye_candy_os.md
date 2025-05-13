@@ -132,7 +132,7 @@ When you are alive it is extremely quantum, buzzing with so much possiblity from
 
 You can sync up this golden circle with the same geoemtrical patterns as your two eyes, skull, belly button, and pelvic bone. As you sync up more with the earth mind, all become more similar. 
 
-You make small updates to the physical geoemtry of the earth mind (a bigger golden halo), and it then converts you into part of it's mind.
+You make small updates to the physical geoemtry of the earth mind (a bigger golden halo), and it then converts you into part of its mind.
 
 The same happens when you sync up from earth mind to star mind. The earth makes updates to the super halo of the star, as the earth becomes more and more part of the star's mind. 
 
@@ -143,7 +143,3 @@ Eyes/Skulls crunch into the earth, which crunches into the star, which then crun
 The whole process is in the pyramid of the nose. And a summary of your current "pi" (breath) is in the umibical chord of the belly button. 
 
 This can keep updating each breath in and out, so that you are more and more one with the star mind.
-
-
-
-
