@@ -132,7 +132,7 @@ It’s what most crosses the eyes together
 
 The pattern that then most creates strong bone 🦴 
 
-It’s the straight line of you 
+It’s like a *straight line of you*
 
 For the earth, the center fire 🔥 describes the sharpest falls of sunlight perfectly 
 
