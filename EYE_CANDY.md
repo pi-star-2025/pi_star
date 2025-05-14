@@ -213,3 +213,127 @@ Our sun is considered shrunken
 So the hypothalamus is a parallel to a smaller sun trying to figure out a cosmic maze 
 
 Depending on if you are left or right-brained, or left or right-eyed, one star is more conscious, the other is more "in the dark."
+
+## Anti DMT Maze
+
+At birth everyone makes Anti-DMT (mentioned earlier). This is light criss-crossed the fastest it ever goes most people's lives. And it then takes high amounts of DMT or a perfect life story or death pheremones from earth/sun/multiverse to reconcile this Anti-DMT. 
+
+It is in the in the very center of the hypothalamus.
+
+It can be referenced actually by squeezing inside of yourself as far as you possibly can. 
+
+Which means drilling inside of your body.
+
+It’s a reference to how deep you go into the earth. 
+
+The very deepest point, that the two stars create a parallel to in the earth’s center. 
+
+This could be anywhere in the world. 
+
+If you are born in New York, it could be New York your whole life even if you move to California. 
+
+You reference this point, waking up each night from dreams each night.
+
+If the biggest story of your life changes, this point can adapt. 
+
+It is basically the thesis of of your two-star story. It even has a positive or negative connotation. 
+
+And is also the very very center of your heartbeat. 
+
+Your heartbeat is nested, and the outer layers actually are more dynamic...
+
+You then have a very center heartbeat that doesn’t change your whole life, unless you change your life story. 
+
+____
+
+And then there are 5 stores of the hypothalamus radio/star: 
+
+The antitragus of the ear (both sides)
+The “tear duct” of the inner eyes (both sides) 
+The tip of the nose 
+
+
+These five locations store the “brain” of the hypothalamus sun. 
+
+
+
+
+
+
+
+
+
+
+
+This is also how pheromones travel between people. 
+
+
+
+There is 5 flip points on your lower half, which are “lower down” versions and power walking in your hips, knees, and pelvic area. 
+
+The hips are like the tear ducts. The knees are like the ears. The pelvis area is like the tip of the nose. 
+
+
+
+This could be considered telepathy, but is really pheromones. The same way insects communicate across the air. 
+
+
+
+____
+
+
+
+
+
+This creates two communication “headquarters” for the body. 
+
+The telepathy is more eye and star/light based from the top half. 
+It is more pheromonal and air(oxygen/CO2) based from the bottom half. 
+
+
+
+
+Ultimately the belly button center air of the body comes together with this decision: push out (and spread information) or push in (receive information)
+
+Over time, your hypothalamus really does more one or the other during the day. 
+
+PUSH IN or 
+
+PUSH OUT
+
+
+
+It’s all based on the overall push IN/OUT of the belly button air. 
+
+
+
+Technically that used to determine alpha/beta. Sender/receiver. Queen/worker.
+
+
+
+The ears make the same decisions
+
+The two eyes make the same decisions
+
+The two nose holes make the same decisions. 
+
+Airs in other holes make the same decision. 
+
+
+
+PUSH IN/
+
+PUSH OUT. 
+
+
+
+One leads to bigger wavelengths. 
+
+One leads to smaller wavelengths. 
+
+
+
+
+
+An intelligent sun (the earth or hypothalamus) can wake up and control the choice.
+
