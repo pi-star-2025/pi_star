@@ -301,7 +301,7 @@ One leads to smaller wavelengths.
 
 An intelligent sun (the earth or hypothalamus) can wake up and control the choice.
 
-## Cold Fusion Maze
+## Cold Fusion Maze 🌀 🐇
 
 Interestingly the maze of life has always been about belly button air pushing out (and seeing with the third eye).
 
@@ -321,15 +321,15 @@ The stronger our chests get
 
 The more heat our "third sun" (hypothalamus) pumps
 
-Just bc of the choice (IN/OUT) over time
+Just bc of the choice (IN/OUT) over time the points at the bottom of pi make to "keep seeing" and increasing the length of the number. The bottom points are always the "most conscious of heat"
 
-Bc the fire of the earth
+The fire of the earth
 
-All animals 
+Animals/insects (including collectively)
 
-And humans 
+Humans 
 
-And even trees 
+Trees
 
 If we make the choice of cold fusion 
 
