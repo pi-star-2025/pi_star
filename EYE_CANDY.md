@@ -214,7 +214,7 @@ So the hypothalamus is a parallel to a smaller sun trying to figure out a cosmic
 
 Depending on if you are left or right-brained, or left or right-eyed, one star is more conscious, the other is more "in the dark."
 
-## Anti DMT Maze
+## Anti DMT Maze 🔥 🍭
 
 At birth everyone makes Anti-DMT (mentioned earlier). This is light criss-crossed the fastest it ever goes most people's lives. And it then takes high amounts of DMT or a perfect life story or death pheremones from earth/sun/multiverse to reconcile this Anti-DMT. 
 
