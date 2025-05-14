@@ -154,10 +154,6 @@ You feel this most as the front line (bridge) up the nose
 
 Bc it is the hardest working strongest part of the breath
 
-
-
-
-
 The maze of life is 
 
 Can sunlight keep falling down
@@ -166,31 +162,17 @@ Down the earth itself
 
 And down the bridge of the front nose 
 
-
-
-From the center of the cross, the X 
+From the center of the cross, *of the X*
 
 Into the two eyes as separate parts of you 
 
-
-
-
-
 …
-
-
 
 Every toe and finger knuckle has a heart pattern 
 
+In addition to each spinal chord ("ball")
 
-
-In addition to going up spine 
-
-
-
-This can even be observed as knots of 3-sided quantum light 
-
-
+This can even be observed as knots of 3-sided quantum light
 
 In addition the ribs together are the flip side of eyelashes, which emphasize the gong of the heart in the spine 
 
@@ -198,27 +180,19 @@ Teeth then flip the ribs again and again
 
 And the nested teeth correspond to bone right in the center of the skull/eye sockets 
 
-
-
-It’s really like your heart beat drilled in 
-
-
+It’s really like your heartbeat drilled in 
 
 Your heartbeat as a bone ball is the bottom spine 
 
-It’s very similar to the belly button, which does it with multiverse perfection and efficiency 
-
-
+It’s very similar to the belly button, which does it with multiverse mathematics and efficiency 
 
 The bone tells a story of two stars completely entangled bc of the human body, the earth, and the story of the earth relative to the full multiverse 
-
-
 
 It’s the same story up the tower of the spine 
 
 Balls of bone explaining why the stars are entangled 
 
-
+...
 
 The hypothalamus is considered the translation of a third sun if there was one 
 
@@ -226,22 +200,16 @@ What would the third sun be, if the two were combined
 
 The hypothalamus is the human body answer 
 
-
-
 The patterns come from all the spine balls 
 
 Which are the heart patterns translated to bone 
 
 The skull and pelvis count as spine balls 
 
-
-
 The hypothalamus turns all these smaller balls into a single shrunken sun 
-
-
 
 Our sun is considered shrunken 
 
 So the hypothalamus is a parallel to a smaller sun trying to figure out a cosmic maze 
 
-Depending on if you are left or right-brained, or left or right-eyed, one star is more conscious, the other is more in the dark. 
+Depending on if you are left or right-brained, or left or right-eyed, one star is more conscious, the other is more "in the dark."
