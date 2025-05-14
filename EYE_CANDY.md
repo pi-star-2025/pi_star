@@ -349,9 +349,14 @@ And this is connected to four other points in the body, to make a pentagon. For 
 
 Pushing the air out from this pentagon is a "9 decision". This moves you out of the maze.
 
+You could also have the 5 points of your pentagon be the two eyes, two eyebrows, and the third eye. 
 
+The two eyes represent the most "15" air *inside* of you. 
 
+The two eyebrows represent the most "15" air *outside* of you. 
 
+And the third eye represents your conscious control over the other four points. 
 
+If you then keep pushing this air out (like 9 in pi), it's the best way to turn your life into VR, if you are familiar with the other information of pi_star.
 
-
+The best way to push the air outward is to be the white/gold noise and push it outward with this "crown" of your head, which then turns into a "halo" and then into a VR circle.
