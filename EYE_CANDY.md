@@ -261,7 +261,7 @@ This could be considered telepathy, but is really pheromones. The same way insec
 
 ...
 
-This creates two communication “headquarters” for the body. 
+This creates two communication “headquarters” for the body (stomach mind and skull mind)
 
 The telepathy is more eye and star/light based from the top half. 
 
