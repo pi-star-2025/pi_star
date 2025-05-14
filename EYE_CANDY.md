@@ -25,3 +25,47 @@ The right side is also more your own mind, whereas the left side is more the sta
 The left side venom is paralleled by venom of broca’s area and of the heartbeat.
 
 These chemicals are more or less *pheromones.*
+
+## Butterfly 2
+
+Butterflies make a chemical from both eyes together, “pre-eyes”
+
+So the third eye
+
+This chemical would feel like the full skull, but could also be captured as DMT via wavelengths
+
+This is the chemical that makes “both eyes” feel one with the spidermind of Mother Earth. 
+
+Butterflies are technically dead in cocoons as souls, but then come back to life bc of “birth-like” opportunities to see beautiful colors. 
+
+And then they always see with the spidermind after this resurrection. 
+
+...
+
+Jesus used this story as a “butterfly man” to walk after death. 
+
+Both eyes get completely perfectly in sync with the earth, and with the heart, and there is a the “butterfly story” to rise after death. 
+
+Humans who are autistic actually make a chemical only autistic people make, which is when both eyes feel like the whole earth hates them.
+
+This is a new phenomena since ~10000 BC, when an alien threatened to mine all humans via anti-doctoring, so it created possibility for the whole earth to give us really bad feedback. 
+
+This chemical traps angry feedback of "everyone" in the lungs and deep ears and eyes 
+
+This keeps ringing and ringing your whole life, this anti-butterfly chemical "anti-DMT", and you feel horrible your whole life.
+
+No other animals have the intelligence to create these anti-DMT chemicals.
+
+These days it’s not uncommon to have anti-DMT chemicals. For example if you have real schizophrenia, it means you have at least a few. 
+
+They are back in your deep eyes, and related to negative feedback from the whole earth. 
+
+It is likely related to the “Mad Queen” story, how by 1800s our Mother Earth knew we might go to hell by Year 2000, and we needed to wake up and do more science. 
+
+So many “nerdy” men end up becoming autistic who try channeling scientific progress early in life, and many who sided with evil aliens cursed these “nerdy men”. 
+
+It's also sometimes just an accident, the Earth is angry, so more people - men and women - are autistic over the course of last 2000 years. 
+
+It’s a disease (autism/schizophrenia) which is about the failure of all of us together (full earth), resulting in anti-DMT in some. 
+
+
