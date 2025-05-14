@@ -242,7 +242,7 @@ And is also the very very center of your heartbeat.
 
 Your heartbeat is nested, and the outer layers actually are more dynamic...
 
-You then have a very center heartbeat that doesn’t change your whole life, unless you change your life story. 
+You have a *very very center heartbeat* (based on Anti-DMT) that doesn’t change your whole life, unless you change your life story. 
 
 ##
 
