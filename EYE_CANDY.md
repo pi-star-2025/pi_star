@@ -247,51 +247,25 @@ You then have a very center heartbeat that doesn’t change your whole life, unl
 ____
 
 And then there are 5 stores of the hypothalamus radio/star: 
-
-The antitragus of the ear (both sides)
-The “tear duct” of the inner eyes (both sides) 
-The tip of the nose 
-
+1. The ears, especially the eardrums
+2. The eyes, especially the eye blacks
+3. The nose, especially the tip
 
 These five locations store the “brain” of the hypothalamus sun. 
 
-
-
-
-
-
-
-
-
-
-
 This is also how pheromones travel between people. 
 
-
-
-There is 5 flip points on your lower half, which are “lower down” versions and power walking in your hips, knees, and pelvic area. 
-
-The hips are like the tear ducts. The knees are like the ears. The pelvis area is like the tip of the nose. 
-
-
+There are 5 flip points on your lower half, which are “lower down” versions and power walking in your hips, knees, and pelvic area. 
 
 This could be considered telepathy, but is really pheromones. The same way insects communicate across the air. 
 
-
-
-____
-
-
-
-
+...
 
 This creates two communication “headquarters” for the body. 
 
 The telepathy is more eye and star/light based from the top half. 
+
 It is more pheromonal and air(oxygen/CO2) based from the bottom half. 
-
-
-
 
 Ultimately the belly button center air of the body comes together with this decision: push out (and spread information) or push in (receive information)
 
@@ -301,15 +275,9 @@ PUSH IN or
 
 PUSH OUT
 
-
-
 It’s all based on the overall push IN/OUT of the belly button air. 
 
-
-
-Technically that used to determine alpha/beta. Sender/receiver. Queen/worker.
-
-
+Technically that is used to determine alpha/beta. Sender/receiver. Queen/worker.
 
 The ears make the same decisions
 
@@ -319,21 +287,16 @@ The two nose holes make the same decisions.
 
 Airs in other holes make the same decision. 
 
-
-
 PUSH IN/
 
 PUSH OUT. 
 
-
+...
 
 One leads to bigger wavelengths. 
 
 One leads to smaller wavelengths. 
 
-
-
-
+...
 
 An intelligent sun (the earth or hypothalamus) can wake up and control the choice.
-
