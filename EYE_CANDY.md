@@ -261,13 +261,13 @@ This could be considered telepathy, but is really pheromones. The same way insec
 
 ...
 
-This creates two communication “headquarters” for the body (stomach mind and skull mind)
+This creates two communication “headquarters” for the body (head and stomach minds)
 
-The telepathy is more eye and star/light based from the top half. 
+The telepathy is more eye and star/light-based from the top half. 
 
-It is more pheromonal and air(oxygen/CO2) based from the bottom half. 
+It is more pheromonal and air(oxygen/CO2)-based from the bottom half. 
 
-Ultimately the belly button center air of the body comes together with this decision: push out (and spread information) or push in (receive information)
+Ultimately the belly-button center air of the body comes together with this decision: push out (and spread information) or push in (receive information)
 
 Over time, your hypothalamus really does more one or the other during the day. 
 
