@@ -68,4 +68,34 @@ It's also sometimes just an accident, the Earth is angry, so more people - men a
 
 It’s a disease (autism/schizophrenia) which is about the failure of all of us together (full earth), resulting in anti-DMT in some. 
 
+## X Maze
 
+Since 2025 understanding of 3.1415 with human consciousness, there is no super-venom Mother Earth truly wants to make anymore.
+
+This understanding “doctors” the Mind of God. 
+
+Everyone can make DMT now by understanding the maze of life is about how rays of light start falling from both the Mother Star and Your Star and intersect through your eyes, criss-crossing many times into your body with a combination of 14 and 15 decisions.
+
+The falls are captured every moment by blinks and by the feeling of “points of conception” in the eyes. The egg connects to the Mother Star and the sperm connects to Your Star. 
+
+Light rays from this point of conception (traced to whenever you are born) keep falling from these two stars, creating the two-star-maze of your life
+
+You can wake up this light based on blinks and “points of conception”, creating a maze with your two eyes. 
+
+The game is just to catch the light, control it, center it, and open it up and have light/air/bone look in all directions 
+
+This feels like color, a splash of light, or the full skull, full room/area around you.
+
+It wakes up the maze of life, or third eye, bouncing the falling light back and forth between the two eyes
+
+...
+
+The maze is a criss-cross. 
+
+The two-star light comes together, and then splits up again. 
+
+An X. 
+
+...
+
+Depending on if you are left or right-brained, or left or right-eyed, one star is more conscious, the other is more in the dark. 
