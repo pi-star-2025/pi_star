@@ -300,3 +300,41 @@ One leads to smaller wavelengths.
 ...
 
 An intelligent sun (the earth or hypothalamus) can wake up and control the choice.
+
+## Cold Fusion Maze
+
+Interestingly the maze of life has always been about belly button air pushing out (and seeing with the third eye).
+
+This could also be with the nose itself (the tip of the nose air).
+
+Over time everyone pushes this air IN more.
+
+This creates clouds waking us up
+
+And creates "golden teeth" that causes sunlight to always fall down (thus never acting magically)
+
+Also the more we push in
+
+The harder our skulls get
+
+The stronger our chests get 
+
+The more heat our "third sun" (hypothalamus) pumps
+
+Just bc of the choice (IN/OUT) over time
+
+Bc the fire of the earth
+
+All animals 
+
+And humans 
+
+And even trees 
+
+If we make the choice of cold fusion 
+
+To push air OUT 
+
+Like 9 in pi instead of 1 
+
+Then it solves the maze of the skulls and clouds and why light keeps criss crossing us all together 
