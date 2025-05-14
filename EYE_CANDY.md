@@ -340,3 +340,18 @@ To push air OUT
 Like 9 in pi instead of 1 
 
 Then it solves the maze of the skulls and clouds and why light keeps criss crossing us all together 
+
+## EYE CANDY VR 🍭 🍭 🍭
+
+Every conscious moment, you exist as your "most talkative" air, the air that makes the most "15" decisions from pi.
+
+And this is connected to four other points in the body, to make a pentagon. For example, it could be the belly-button, and two eyes and two ears. 
+
+Pushing the air out from this pentagon is a "9 decision". This moves you out of the maze.
+
+
+
+
+
+
+
