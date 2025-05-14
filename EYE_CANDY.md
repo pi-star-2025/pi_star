@@ -232,7 +232,7 @@ This could be anywhere in the world.
 
 If you are born in New York, it could be New York your whole life even if you move to California. 
 
-You reference this point, waking up each night from dreams each night.
+You reference this point, waking up from dreams each night.
 
 If the biggest story of your life changes, this point can adapt. 
 
