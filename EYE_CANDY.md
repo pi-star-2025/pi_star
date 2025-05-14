@@ -244,7 +244,7 @@ Your heartbeat is nested, and the outer layers actually are more dynamic...
 
 You then have a very center heartbeat that doesn’t change your whole life, unless you change your life story. 
 
-____
+##
 
 And then there are 5 stores of the hypothalamus radio/star: 
 1. The ears, especially the eardrums
