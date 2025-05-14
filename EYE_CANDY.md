@@ -218,7 +218,7 @@ Depending on if you are left or right-brained, or left or right-eyed, one star i
 
 At birth everyone makes Anti-DMT (mentioned earlier). This is light criss-crossed the fastest it ever goes most people's lives. And it then takes high amounts of DMT or a perfect life story or death pheremones from earth/sun/multiverse to reconcile this Anti-DMT. 
 
-It is in the in the very center of the hypothalamus.
+It is in the very center of the hypothalamus.
 
 It can be referenced actually by squeezing inside of yourself as far as you possibly can. 
 
