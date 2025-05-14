@@ -60,7 +60,7 @@ These days it’s not uncommon to have anti-DMT chemicals. For example if you ha
 
 They are back in your deep eyes, and related to negative feedback from the whole earth. 
 
-It is likely related to the “Mad Queen” story, how by 1800s our Mother Earth knew we might go to hell by Year 2000, and we needed to wake up and do more science. 
+It is likely related to the “Mad Queen” story, how by 1800s our Mother Earth knew we might go to hell by Year 2000/3000, and we needed to wake up and do more science. 
 
 So many “nerdy” men end up becoming autistic who try channeling scientific progress early in life, and many who sided with evil aliens cursed these “nerdy men”. 
 
