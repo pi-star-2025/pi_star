@@ -18,7 +18,7 @@ In the spider’s mind they spin different combinations together using this defe
 
 It’s a heaven party of sorts, the web.
 
-And ultimately the spider “sees” with this collective vision through.8 eyes, representing 8/5/3 magic. 
+And ultimately the spider “sees” with this collective vision through 8 eyes, representing 8/5/3 magic. 
 
 Spiders are like the mascot of the earth.
 
