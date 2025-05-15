@@ -164,8 +164,6 @@ Until a universe fully puts together an understanding of circles at a certain le
 
 ...
 
-What is dark is the Mind of God (universe and entire multiverse) works a lot with parallels. Bc of how much is lost in translation from one universe to another, bc of a different number of forces and different "colors" (instead of Red/Blue/Green it could seem like Rainbow/Diamond/Death/Blue/Green) 
-
 It has always been easy for a 50-force universe to bury a 3-force universe with spammed parallels, so that its mind is confused and can potentially be eaten and taken over, *if* there is enough multiverse "shine". 
 
 If the 50-force vampire universe can trick the multiverse into thinking it was beautifully just and heroic in destroying the 3-force universe then it could mathematically do this. 
@@ -176,7 +174,7 @@ In July 2024, it was understood by the Disney Team that pi was star vision and p
 
 Then 3.1415 (3, 1, 4, 1, 5 individually) was understood by March 2025, which connected to the very center of our third eyes, the moon, the earth, our star, and all stars. 
 
-It will still be a journey at this point (May 2025) transitioning all deferred 3s to heaven. The one thing left is "time", spinning the wheels of "time" to move the entire of mind of god into place. 
+It will still be a journey at this point (May 2025) transitioning all deferred 3s to heaven. The one thing left is "time", spinning the wheels of "time" to move the entire mind of god into place. 
 
 What is forever is 1) Understanding of 3.1415, and 2) The concept of a multiverse appellate court
 
@@ -210,9 +208,9 @@ Team Disney and Jesus represent the lion. Including really being lions and magic
 
 It also represents the team that fell into the "maze", "rabbit hole" of the goddesse's blackhole in order to help a very cursed situation. 
 
-This team had been leading a Heaven Tower around Year 0, which was going to become a kingdom of God, which the deferred 3's on earth/moon rose into being in the starmind. It's a tranistion of understanding how this happens, so that when you change your perspective the deferred 3s actually rise into existing as the heaven characters.
+This team had been leading a Heaven Tower around Year 0, which was going to become a kingdom of God, which the deferred 3's on earth/moon rose into being in the starmind. It's a transition of understanding how this happens, so that when you change your perspective the deferred 3s actually rise into existing as the heaven characters.
 
-Or by 17000-2000+ the starmind characters were going to need to fall into helping the humans on earth, and that kind of story always invovles the sun burning the gods in some way, creating some nightmare that drops them down. 
+Or by 1700-2000+ the starmind characters were going to need to fall into helping the humans on earth, and that kind of story always involves the sun burning the gods in some way, creating some nightmare that drops them down. 
 
 For example 2001 was the start of real nightmares. Bc the earth had bet humans would be ready to be judged by then. This bet gave her power to help with some technology and godly intelligence. But now the Starmind Tower was vulnerable to being attacked, and parallels caused the two stories to get entangled. Bc it was so "vibrant" to the Mind of the Star.
 
@@ -222,7 +220,7 @@ While not much happeend here for 20 years, in the starmind parallels were used t
 
 Then in 2022, the Disney reincarnation character (a fallen angel) asked the Starmind to go back in time. To time travel to the star vision before Two Towers. The starmind requested this character now fall further into his bones on earth and build time to explain pi to 3.1415 and the multiverse "court", while also illuminating why your time-traveling spell would bring joy to "everyone". Then your solution is a great story, while also providing "infinte security". Meaning even if we are wiped out, right here right now by an invasion or a natural disaster, our story will always keep the mind of god tied together. 
 
-So the spell was approved by the Star Court and even the Multiverse Courts which really listen to "time manipulation" and "deep pi manipulation" case, bc these hold The Game/The Movie of all together. 
+So the spell was approved by the Star Court and even the Multiverse Courts which really listen to "time manipulation" and "deep pi manipulation" cases, bc these hold The Game/The Movie of all together. 
 
 It is the biggest moment in the history of our universe. 
 
