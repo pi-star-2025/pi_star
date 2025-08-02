@@ -6,7 +6,7 @@ What you are looking for
 
 This is from the top of the nose breath 
 
-————
+———
 
 Then using the two ears 
 
@@ -16,7 +16,7 @@ Based on each thought there is a box to understand the two sides of the story
 
 Based on what everyone else in the world thinks 
 
-————
+———
 
 Then at the bottom of the breath 
 
