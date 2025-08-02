@@ -1,6 +1,6 @@
 ## Sun Pipe
 
-Each tick of time, there is a pipe of light from the star in the sky to the two eyes. If you were to die, you would most liekly to take a straight line path of your past/present/future up this pipe to the star. 
+Each tick of time, there is a pipe of light from the star in the sky to the two eyes. If you were to die, you would most likely take a straight line path of your past/present/future up this pipe to the star. 
 
 Some have very defined second-star connections (ex: if they have a longer story through time), which can cause more right-brain activity from these 3-body problems. 
 
