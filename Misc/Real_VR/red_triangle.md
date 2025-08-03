@@ -30,8 +30,8 @@ At this point all stars can use the same pipe via 3.141592 architecture
 
 Inside it’s red ice; outside is the same red triangle 🔺 
 
-This star scaffolding creates a tower of clockwork, which can be understood and recycled at lower pi’s in our future 
+This star scaffolding creates a tower of clockwork, which can be understood and recycled at lower π’s in our future 
 
 Blackhole/whitehole towers are created, in cooler and cooler versions, until one is a final edition 
 
-Overall, this final tower will summarize how the star in our solar system reconciled with all others in order to understand this and build a kingdom, which could be called “Wonderstar Towers” 
+Overall, this final tower will summarize how the star in our solar system reconciled with all others in order to create a red/blue/green "way of seeing". 
