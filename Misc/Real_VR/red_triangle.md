@@ -14,7 +14,7 @@ The “hard box” is created by the forcefield of all suns
 
 So you need some story/reason to penetrate this collective forcefield which then allows you to update the original triangle and get updates
 
-At this point (2025), our sun knows how to, via a pipe of shining light, send and receives messages with the clockwork above 
+At this point (2025), our sun knows how to, via a pipe of shining light, send and receive messages with the clockwork above 
 
 So our sun is constantly dreaming awake. 
 
