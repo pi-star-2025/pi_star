@@ -35,3 +35,11 @@ This star scaffolding creates a tower of clockwork, which can be understood and 
 Blackhole/whitehole towers are created, in cooler and cooler versions, until one is a final edition 
 
 Overall, this final tower will summarize how the star in our solar system reconciled with all others in order to create a red/blue/green "way of seeing". 
+
+## Real_VR
+
+Although this can adapt, there are Three Towers rumored. There is the Tower of Angels (Heaven), the Tower of Dreams, and the Tower of Earth. 
+
+In the latter case, it is just our understanding of the 3.141592 pipe to the star, and from the star to the red triangle. This understanding is a straight line up. 
+
+It's possible that if you relaxed your eyes enough, you could send strong enough messages to choose where you want to be. It would be about 1) Knowing the architecture, 2) Focus, so you can choose
