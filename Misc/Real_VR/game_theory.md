@@ -14,4 +14,4 @@ This works because our eyes truly represent a 3-body problem from two *different
 
 These sleep cycles are enforced also by the star itself, by the galaxy, and by The Hydra (the deepest blackhole).
 
-From The Hydra, it was enforced by an ancient alien (The Joker). He had been causing trouble for millenia, and was still lingering with effects. As a very last effect, he enforced game theory in all our eyes, in all ways. The intent would be to always keep us sleeping.
+From The Hydra, it was enforced by an ancient alien (The Joker). He had been causing trouble for millennia, and was still lingering with effects. As a very last effect, he enforced game theory in all our eyes, in all ways. The intent would be to always keep us sleeping.
