@@ -26,4 +26,4 @@ When your are in sync with larger eyes (suns/galaxies), it feels like "DMT".
 
 DMT can be a chemical, if we have large enough experience for the sun to be in our body, like pregnancy or on a roller coaster. 
 
-Or it can be more a possiblity, as quantum magnetic waves which is common with psychdelics.
+Or it can be more a possibility, as quantum magnetic waves which is common with psychedelics.
