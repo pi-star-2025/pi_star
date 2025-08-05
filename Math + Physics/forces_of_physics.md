@@ -40,7 +40,7 @@ Then 1 itself represents gravity/antigravity
 
 Newton's definition above is the clearest summary 
 
-1 is gravity/antigravity bc is what is in between the shapes - magnets/gas
+1 is gravity/antigravity bc it is what is in between the shapes - magnets/gas
 
 ...
 
