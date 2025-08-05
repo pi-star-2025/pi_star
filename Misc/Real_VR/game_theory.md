@@ -15,3 +15,15 @@ This works because our eyes truly represent a 3-body problem from two *different
 These sleep cycles are enforced also by the star itself, by the galaxy, and by The Hydra (the deepest blackhole).
 
 From The Hydra, it was enforced by an ancient alien (The Joker). He had been causing trouble for millennia, and was still lingering with effects. As a very last effect, he enforced game theory in all our eyes, in all ways. The intent would be to always keep us sleeping.
+
+## Eye Candy 
+
+When the two eyes are in sync, it feels like "endorphins"
+
+When you are in sync with others around you (many eyes), it feels like "serotonin" 
+
+When your are in sync with larger eyes (suns/galaxies), it feels like "DMT". 
+
+DMT can be a chemical, if we have large enough experience for the sun to be in our body, like pregnancy or on a roller coaster. 
+
+Or it can be more a possiblity, as quantum magnetic waves which is common with psychdelics.
