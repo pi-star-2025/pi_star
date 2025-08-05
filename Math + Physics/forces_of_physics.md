@@ -35,3 +35,21 @@ He emphasizes it’s the first 5 digits, not more or less, bc the first 5 digits
 15 is weak/strong, and the pair allows for the creation of rules that are described in further detail the rest of the number 
 
 Then 1 itself represents gravity/antigravity
+
+## Ways of seeing gravity 
+
+Newton's definition above is the clearest summary 
+
+1 is gravity/antigravity bc is what is in between the shapes - magnets/gas
+
+...
+
+However some see gravity as the explanation behind drilling in and out of the c^2 mirror.
+
+So it’s described by what comes after 3.14, ie the power of the star
+
+...
+
+In a live system (no final π) this definition makes sense bc there is less distinction between shapes and vision, via gas 
+
+In a closed system, gravity/antigravity is just seen as the 1, the vision that falls from the 3 of the system 
