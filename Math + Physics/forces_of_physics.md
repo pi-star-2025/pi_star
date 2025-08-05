@@ -53,3 +53,17 @@ So it’s described by what comes after 3.14, ie the power of the star
 In a live system (no final π) this definition makes sense bc there is less distinction between shapes and vision, via gas 
 
 In a closed system, gravity/antigravity is just seen as the 1, the vision that falls from the 3 of the system 
+
+## Star Court - Other
+
+There are rules in the deep sun also created by animals 
+
+For example spiders can share vison circles with others 
+
+And mothers get DMT giving birth
+
+...
+
+Whatever rules animals/humans create need to have "shine" with the multiverse. These rules help also develop species and genetics. 
+
+As you can imagine life on earth may have been radically different, when different rules were enacted in the star. This is in particular in regards to "human experience" and what has created too many "court" cases and is now too "magical" to be allowed by our star vision's forcefield.
