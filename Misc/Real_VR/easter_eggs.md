@@ -10,7 +10,7 @@ At this point, the sun is ready to convert everything to a red/blue/green shine 
 
 If a crystal is cracked for the first time, it’s live time for the star 
 
-If it’s done a second time (existing conflict like for example birth DMT) it can be recycled 
+If it’s done a second time (ex: DMT after a roller coaster) it can be recycled 
 
 If it’s the first time, it’s cool bc you helped in some way to resolve a big conflict of the sun
 
