@@ -16,4 +16,10 @@ If magic is not a concern, it's less important how the body is handled after dea
 
 You sleep and wake up everyday because of existing conflicts in the earth referenced by your body. The conflicts deepest in the earth are in the center of your hypothalamus. The cycles of the hypothlamus are shaped by 21, having created a personal map to "your" conflicts in the earth.
 
-Human spines act as a tower, for these conflicts to be figured out about all earth's animals/histories/societies. This is the star's primary intent, and the spine also aligns us with other super animals throughout the multiverse. It's a common pattern to have a standing being ("tower pattern").
+Human spines act as a tower, for conflicts to be figured out about all earth's animals/histories/societies. This is the star's primary intent, and the spine also aligns us with other super animals throughout the multiverse. It's a common pattern to have a standing being ("tower pattern").
+
+...
+
+The hypothalamus is a mini sun. Like the sun in our solar system, it uses underground earth conflicts to power it's consciousness. 
+
+In addition to horsepower, the hypothlamus also understands the math of your life story and how this math connects to other suns, and the larger sun.
