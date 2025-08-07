@@ -1,4 +1,4 @@
-## Sun
+## Star Vision
 
 3.14159 is most like a point. 
 
@@ -12,8 +12,8 @@ And then 3.14159 captures this protrusion with a point.
 
 ...
 
-In a sun, the 9 represents the dead center. The 2 is then not just an array, but a circle of arrays (spokes of sunlight)
+In a star, the 9 represents the dead center. The 2 is then not just an array, but a circle of arrays (spokes of starlight)
 
 In an atom, the 5 represents the outer electrons, 9 represents the very center of the atom, and 2 represents its circular vision. 
 
-Thus, the definition of a sun is when the 2 in 3.141592 is a circle of arrays, not only one array. This means that the physical sun itself is a stable 3.14159 system.
+Thus, the definition of a star is when the 2 in 3.141592 is a circle of arrays, not only one array. This means that the physical star itself is a stable 3.14159 system.
