@@ -1,10 +1,8 @@
 ## Genetics
 
-Genetics are based on live air (nitrogen) decisions at a very deep level 
+Genetics are based on live air (nitrogen) decisions at a very deep level, happening only in the eyes
 
-Happening only in the eyes
-
-If you focused the deep air in the eyes enough you could “enhance them”
+If you focused the deep air in the eyes enough you could “enhance” these decisions
 
 ...
 
