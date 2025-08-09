@@ -22,7 +22,7 @@ More aligned with what the multiverse wanted
 
 There are several scientists from the multiverse who helped with this evolution. 
 
-Initially, Natural Selection was both mathematical and largely drived by the rules by this sun/galaxy. 
+Initially, Natural Selection was both mathematical and largely drived by the rules of this sun/galaxy. 
 
 Then with the parallel universe (kingdom of angels) story, the multiverse scientists could add a direction that created a shine for the earth.
 
