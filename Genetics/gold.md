@@ -42,6 +42,6 @@ Our goddess then in 2025 completely syncs things up. And we don't have these "ti
 
 ...
 
-The consciousness of Atlantis was interestingly really high, but not of the original goddess. She did update a lot, but it was so painful as a young goddess (first time seer) that she deferred her understanding (a kind of spirit lefover). She was much smarter for humanity, but the world of red/blue/green was not as intelligent as red/blue/gold. 
+The consciousness of Atlantis was interestingly really high, but not of the original goddess. She did update a lot, but it was so painful as a young goddess (first time seer) that she deferred her understanding (a kind of spirit leftover). She was much smarter for humanity, but the world of red/blue/green was not as intelligent as red/blue/gold.
 
 Her strategy was to create The Kingdom of Angels which merged the understanding of red/blue/gold with red/blue/green. It helped change our eyes a lot too genetically, which could be studied. And this, in addition to the "tower pattern", was essential for evolution.
