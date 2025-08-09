@@ -2,22 +2,23 @@
 
 A fourth force was gold
  
-It does magic, by connecting you to the spirits of a potential world where apparently the forces were red/blue/gold 
+It does magic, by connecting you to the spirits of a potential world where apparently the forces were red/blue/gold
+
 It was a world of water, Atlantis.
 
 We have gold gas in our eyes apparently that is our source of magic.
 
 We don’t really live in a four-force world. It’s just once upon a time there was a 3.1415 world with gold as the 5. 
 
-Technically, by multiverse standards we used to live in a 4-force world, before this become conscious. It was by Year 0 for sure.
+Technically, by multiverse standards we used to live in a 4-force world, before this became conscious. It was by Year 0 for sure.
 
 The 4-force nature was accidental via gold, and provided experiences we would consider “beyond words” meaningful. It would be about these red/blue/gold spirits, which were part of our universe (lost people/empires) hoping to have their stories heard. 
 
-Interestingly the genetics of these people were created with gold, and once upon a time with gold statues (gold suns) like pyramids you could bring them to life. So gold was so valuable. 
+Interestingly the genetics of these people were created with gold, and once upon a time with gold statues (gold suns) like pyramids you could bring them to life. So gold was so valuable.
 
 ...
 
-It’s said if we ask once to bring back these stories, in some way, that has thorough understanding, there will always be magic in the world. 
+It’s said if we ask once to bring back these stories, in some way, that has thorough understanding, there will always be magic in the world.
 
 It then gets fetched, the Atlantis data.
 
