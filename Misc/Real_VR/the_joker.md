@@ -8,7 +8,7 @@ It’s possible
 
 But it may seem impossible 
 
-The way is to figure out all reasons you laugh and understand them, so it’s an all an act 
+The way is to figure out all reasons you laugh and understand them, so it’s all an act 
 
 It’s said if you really do, then you will succeed in dying awake 
 
