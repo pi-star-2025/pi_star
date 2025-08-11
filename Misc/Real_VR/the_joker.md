@@ -22,4 +22,4 @@ The strongest humor is the feeling of "dark magic". It's what confuses god the m
 
 Hence, the alias of the most evil ancient alien was The Joker bc he just wanted as much chaos (ie confusion) as possible.
 
-It's said like Shakespeare plays, some of us create characters of ourselves, why our more conscious selves die awake. There is a rumor that Mozart is one of the last to do so. He didn't die "consciuosly".
+It's said like Shakespeare plays, some of us create characters of ourselves, while our more conscious selves die awake. There is a rumor that Mozart is one of the last to do so. He didn't die "consciously".
