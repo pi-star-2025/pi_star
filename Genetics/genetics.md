@@ -24,4 +24,4 @@ As you go further back into the 3-body problem of the two stars of your eyes, ge
 
 This is also the part of the mind that runs simulations and replays memories. It's the fire in your eyes, which if slowed down, turns into imagination.
 
-The heavier the imagination -- the larger the colors -- the more impactful and foundational the genetics are that have been rendered.
+The heavier the imagination —— the larger the colors —— the more impactful and foundational the genetics are that have been rendered.
