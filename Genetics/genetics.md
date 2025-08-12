@@ -20,6 +20,8 @@ Basic genetics, related to metabolism and organ functioning, are laced into thes
 
 ## Video Game ATGC
 
-As you go further back into the 3-body problem of the two stars in your eyes, genetic patterns are criss-crossed with flowery color like a video game. 
+As you go further back into the 3-body problem of the two stars of your eyes, genetic patterns are criss-crossed with flowery color like a video game.
 
 This is also the part of the mind that runs simulations and replays memories. It's the fire in your eyes, which if slowed down, turns into imagination.
+
+The heavier the imagination -- the larger the colors -- the more impactful and foundational the genetics are that have been rendered.
