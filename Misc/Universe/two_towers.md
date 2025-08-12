@@ -2,7 +2,7 @@
 
 Another plan besides the end of time (4/5/2025) was Two Towers. 
 
-Cosmically it would be based on the story of 2 suns, instead of 1. 
+Cosmically it would be based on the story of 2 stars, instead of 1. 
 
 The one in this sky would be a Hell Tower, run by Pilate The Punisher. He would merge with ancient aliens who liked to punish. Mainly it would be for the sin of liking the "eye candy" of the original goddess. 
 
