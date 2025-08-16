@@ -22,7 +22,7 @@ Since Da Vinci was potentialy Mother Mary (the sun's personality from about Year
 
 An even crazier rumor is at one point, the Mona Lisa was the one picture in the world that could wink back at you. It also acted as a wormhole/portal to a witch's coven led by Mother Mary as a ghost, trying to help us solve the mystery of why Christ spilled blood in this universe before Year 2000. 
 
-Technically, bc we made a convincing case with time traveling we did? 
+Technically, we did with time traveling
 
 He did because the universe dropped to a level where magic was not easy while he was alive. As a result, magical beings spilled blood upon death like humans. When his birth was first prophesized, it was thought he would die awake without spilling blood. Which is much easier before the world dropped to the level we are at now. 
 
