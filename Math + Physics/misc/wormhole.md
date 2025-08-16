@@ -6,7 +6,7 @@ For example, a wormhole can connect a 4D and 6D circle.
 
 And the simplest definition of how to "spark life" is about how to get a wormhole spinning. 
 
-# The Smile
+## The Smile
 
 The smile mirrors the center of the heart. 
 
@@ -14,7 +14,7 @@ Also, it parallels the wormhole between you and the sun (4D and 6D). It feels li
 
 It is most useful for understanding your “role” from the sun, and your “character” together. 
 
-# Da Vinci Rumor 
+## Da Vinci Rumor 
 
 Since Da Vinci was potentialy Mother Mary (the sun's personality from about Year 2000 BC to 2025), the sun could use the smile (4D/6D pipe) to leak secrets to himself/herself. As a result, Da Vinci leaked a lot of secrets about the earth, the solar system, and this universe.
 
