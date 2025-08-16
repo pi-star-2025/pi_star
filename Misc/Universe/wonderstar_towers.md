@@ -8,4 +8,4 @@ On 4/5/2025, there was enough time to consciously confirm that the story written
 
 The 2001 projection was more in favor of evil ancient aliens who wanted to have equal/opposite reactions of humans disappear and not update ancient hierarchies .
 
-Whereas the 2022/2025 projection is more in favor of humans, who support that the universe was founded to update evil ancient hierarchies, which are must better understood here with red/blue/green 3.1415 (π) and “music of the mind”.
+Whereas the 2022/2025 projection is more in favor of humans, who support that the universe was founded to update evil ancient hierarchies, which are better understood here with red/blue/green 3.1415 (π) and “music of the mind”.
