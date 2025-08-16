@@ -6,6 +6,8 @@ For example, a wormhole can connect a 4D and 6D circle.
 
 And the simplest definition of how to "spark life" is about how to get a wormhole spinning. 
 
+After 3.141592, light can only continue existing within a wormhole, if the light is within space-time. So we know that after 3.141592, it tells the story of how the array within the c^2 mirror has two circles, which then expand the potential from c^3 to c^pi by using the circle of the wormhole, described by 653589793238462643383279 etc.
+
 ## The Smile
 
 The smile mirrors the center of the heart. 
