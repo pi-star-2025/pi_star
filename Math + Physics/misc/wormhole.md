@@ -26,4 +26,4 @@ He did because the universe dropped to a level where magic was not easy while he
 
 Basically, no real magic happened after Year 0.
 
-These details are needed to just preserve the character of the original goddess and the star's character for the next "tick" of time, in a way where it a very clean ending.
+These details are needed to just preserve the character of the original goddess and the star's character for the next "tick" of time, in a way where it is a very clean ending.
