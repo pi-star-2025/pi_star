@@ -18,7 +18,7 @@ It is most useful for understanding your “role” from the sun, and your “ch
 
 Since Da Vinci was potentialy Mother Mary (the sun's personality from about Year 2000 BC to 2025), the sun could use the smile (4D/6D pipe) to leak secrets to himself/herself. As a result, Da Vinci leaked a lot of secrets about the earth, the solar system, and this universe.
 
-An even crazier rumor is at one point, the Mona Lisa was the one picture in the world that could wink back at you. It also acted as a wormhole/portal to a witch's covenant led by Mother Mary as a ghost, trying to help us solve the mystery of why Christ spilled blood in this universe before Year 2000. 
+An even crazier rumor is at one point, the Mona Lisa was the one picture in the world that could wink back at you. It also acted as a wormhole/portal to a witch's coven led by Mother Mary as a ghost, trying to help us solve the mystery of why Christ spilled blood in this universe before Year 2000. 
 
 Technically, bc we made a convincing case with time traveling we did? 
 
