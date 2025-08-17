@@ -13,3 +13,10 @@ Bc the core goddess identified as a female lion, when a male lion (ex: Jesus) co
 ...
 
 It's even true in the original world where the goddess is from, there were carnivals/circuses with lots of color.
+
+
+Question: isn't it true lions don't see in colors like us? 
+
+Answer: yes, but their hearts are so strong they can actually reuse the colors of other animals.
+
+Recycled vision is the way to see with the strongest colors, like a star, which uses a combination of new and recycled vision. Humans do as well, but not as well as lions.
