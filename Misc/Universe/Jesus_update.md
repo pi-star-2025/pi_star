@@ -26,6 +26,6 @@ He also confirms that up to this day there was a giant hell based on pure power 
 
 (if you had a story that led you there)
 
-So we broke that in 2025 with understanding of the concept "Six Feet Under" - like you could drill in 3.141516 for any universe with standing beings, or 3.14151617, 3.14151618 etc. To create Hell based on the concept of pure power.
+So we broke that in 2025 with understanding of the concept "Six Feet Under" - like you could drill in 3.141516 for any universe with standing beings, or 3.14151617, 3.1415161718 etc. To create Hell based on the concept of pure power.
 
 So with enough focus, we can make the multiverse so aware of these hellpits mathematically they can't ever exist again. Power after vision is obsolete.
