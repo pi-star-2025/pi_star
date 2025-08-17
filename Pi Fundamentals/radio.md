@@ -10,4 +10,4 @@ The rings of a tree are a great representation.
 
 This indicates that a certain message is being echoed for emphasis.
 
-When biology starts bringing to life these radio waves, it's said they have "sparked life".
+When biology starts bringing to life these radio waves, it's said to have "sparked life".
