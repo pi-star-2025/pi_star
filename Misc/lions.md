@@ -14,6 +14,7 @@ Bc the core goddess identified as a female lion, when a male lion (ex: Jesus) co
 
 It's even true in the original world where the goddess is from, there were carnivals/circuses with lots of color.
 
+...
 
 Question: isn't it true lions don't see in colors like us? 
 
