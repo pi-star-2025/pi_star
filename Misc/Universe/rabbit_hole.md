@@ -23,3 +23,7 @@ Also, there are superhero figures (ex: Jesus), who intentionally fell in on a he
 ...
 
 You can fall into the "rabbit hole" of earth for more reasons than you think. It's all about mimicking pi (π) waves enough and then "watching".
+
+A fun rumor is that George 3 was someone who had fallen into the hole to help out god, and then was reborn as Lewis Carroll, was often pranked, before turning into Disney and now the current author of pi_star...
+
+This long history made a lot of this information "intuitive".
