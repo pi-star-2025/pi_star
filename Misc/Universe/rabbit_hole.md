@@ -12,7 +12,7 @@ So there is huge benefits to understanding all the ways you “see” and contro
 
 It’s true that some people fall into the maze of our universe (the radio waves of the original 3.1415 triangle) because they are watching the universe on an advanced TV or playing an advanced game or have an advanced VR experience.
 
-Then they lose control of their seeing decisions and fall into the hole of this Triangle/Universe and often are born as a person, if they are from an advanced world. The reason is because the red/blue/green colors of this world look like “eye candy” to other worlds, sometimes entrancing. It gives off the impression they wanted to be born here.
+Then they lose control of their seeing decisions and fall into the hole of this Triangle/Universe and often are born as a person, if they are from an advanced world. The reason is because the red/blue/green colors of this world look like “eye candy” to other worlds, sometimes entrancingly. It gives off the impression they wanted to be born here.
 
 These people are often unhappy, who fall into the hole and very smart, and have stories about exposing the “eye candy” nature of this universe. 
 
