@@ -34,6 +34,6 @@ When you reference rabbit-hole architecture to fall into the pi (π) of a system
 
 For example, you would fall into life by coming from the center of the heart, or the center of the sun, or the central hub of a galaxy. 
 
-So like bee hives, there is a buzz of potential life in the heart of systems. There is activity from the multiverse wanting to fall into the maze of our universe, which creates parallel motion on either side of universe/multiverse mirror. 
+So like bee hives, there is a buzz of potential life in the heart of systems. There is activity from the multiverse wanting to fall into the maze of our universe, which creates parallel motion on either side of the universe/multiverse mirror. 
 
 It’s true that bee hives actually act as lottery games, to see if you potentially want to learn more about this world and fall in further. You can meet the queen after death, and she can develop your spirit here. This, as well as other insectile patterns, come from common multiverse tropes, as well as relationships with the original goddess, of 3.1415.
