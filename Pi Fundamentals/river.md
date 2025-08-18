@@ -18,4 +18,4 @@ Again, this is because the radios (concentric circles) establish the direction o
 
 When there is enough of a river of time created by red/blue/green it started getting recorded by 8D forces, and it locked certain physics more into place to create a "court" for the π of the world.
 
-If there is a reason to be break it, it needs to stand in 8D courts. For example, time traveling or ending time or creating a nested world within your world.
+If there is a reason to break it, it needs to stand in 8D courts. For example, time traveling or ending time or creating a nested world within your world.
