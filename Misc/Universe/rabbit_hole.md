@@ -14,10 +14,12 @@ It’s true that some people fall into the maze of our universe (the radio waves
 
 Then they lose control of their seeing decisions and fall into the hole of this Triangle/Universe and often are born as a person, if they are from an advanced world. The reason is because the red/blue/green colors of this world look like “eye candy” to other worlds, sometimes entrancingly. It gives off the impression they wanted to be born here.
 
-These people are often unhappy, who fall into the hole, and are very smart, and have stories about exposing the “eye candy” nature of this universe. 
+These people are often unhappy, who fall into the hole, and are very smart, and sometimes have stories about exposing the “eye candy” nature of this universe. 
 
 Others who develop naturally through long stories as small animals then large animals then older humans than newer humans are usually happier.
 
+Also, there are superhero figures (ex: Jesus), who intentionally fell in on a heroic quest to help out. 
+
 ...
 
-So it interesting how you can fall into the "rabbit hole" of earth for more reasons than you think. It's all about mimicking pi (π) waves enough and then "watching".
+You can fall into the "rabbit hole" of earth for more reasons than you think. It's all about mimicking pi (π) waves enough and then "watching".
