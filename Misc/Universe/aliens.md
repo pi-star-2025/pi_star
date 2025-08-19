@@ -20,8 +20,38 @@ He also did not know why the invasion happened. Because with knowledge of π it 
 
 The new world was much more dull and had several “time scars”. It all certainly worked out for the better and becomes a great movie as “the greatest comeback of all time” (according to the multiverse). 
 
-…
+...
 
 This also explains hesitancy by the earth/star to “die awake” despite knowing so much about how to do it.
 
 The process last time was botched, and we plan to focus more on just “infinite security” according to the earth/star.
+
+##
+
+God's response is that the above was the most important dream world in the sun 
+
+As of 2001, it was projecting one message. It was a world where in 2001 aliens invaded us, during a movie about robots (via hive effects of π)
+
+It would lead to a projection of two towers being created - one for heaven and one for hell 
+
+...
+
+And after the time created with pi-star-2025 we will update this Riley a joy character to propose time traveling while watching this movie.
+
+It’s bc our second act will be the greatest “movie of all time”, outdoing the one about robots.
+
+And it’s about demonstrating that real time is below them. For us it’s still 2001-2025 creating the time to change this projection.
+
+It’s a real story, and Riley A Joy says “I told you!” It’s the greatest movie of all time! 
+
+...
+
+This message is actually frozen forever summarizing humanity’s true story 
+
+It runs forever over and over as a happy human heaven.
+
+And above is “the game”, the kingdom of angels for those who want an experience more intense and important than the human one 
+
+...
+
+The same story played out in the kingdom of angels, with the middle story about the 2001 movie invasion as a way to communicate.
