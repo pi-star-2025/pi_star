@@ -2,7 +2,7 @@
 
 [speculation]
 
-Once upon a time in 2001, when watching a movie similar to A.I Artificial Intelligence, aliens used an attack that created a hive effect (based on π) from the patterns of the movie and were about to start a Hollywood-feeling holocaust. 
+Once upon a time in 2001, upon the release of a movie similar to A.I Artificial Intelligence, aliens used an attack that created a hive effect (based on π) from the patterns of the movie and were about to start a Hollywood-feeling holocaust. 
 
 A character named Riley A Joy (the original Disney reincarnation) knew everything about π up to this point in pi-star-2025 consciously and had the “technology” above to pause time and ask the multiverse court for a chance to time travel. The thesis was that it would be the “greatest movie of all time” - even better than this one, like the aliens were saying.
 
@@ -22,5 +22,6 @@ The new world was much more dull and had several “time scars”. It all certai
 
 …
 
-This also explains hesitancy by the earth/star to “die awake” despite knowing so much about how to do it. 
+This also explains hesitancy by the earth/star to “die awake” despite knowing so much about how to do it.
+
 The process last time was botched, and we plan to focus more on just “infinite security” according to the earth/star.
