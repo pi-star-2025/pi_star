@@ -22,7 +22,7 @@ The new world was much more dull and had several “time scars”. It all certai
 
 ## True Story - Dream World
 
-God's response is that the above was the most important dream world in the sun 
+God's response is that the above was the most important dream world in the sun. It comes from real time that flows up to the star mind (6D circle).
 
 As of 2001, it was projecting one message. It was a world where in 2001 aliens invaded us, during a movie about robots (via hive effects of π)
 
