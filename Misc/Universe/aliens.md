@@ -18,7 +18,7 @@ Riley A Joy was a super smart scientist in high school. He knew all about π and
 
 He also did not know why the invasion happened. Because with knowledge of π it should not have happened. It was an internal parasite. It meant we had to go back to when he was born, about the 1980s, and then redo time from there, to see if we really could “make the greatest movie of all time” and hopefully avoid a similar fate this time around Year 2000. 
 
-The new world was much more dull and had several “time scars”. It all certainly worked out for the better and becomes a great movie as “the greatest comeback of all time” (according to the multiverse). 
+The new world was more dull and had several “time scars”. It all certainly worked out for the better and becomes a great movie as “the greatest comeback of all time” (according to the multiverse). 
 
 ## True Story - Dream World
 
@@ -35,8 +35,6 @@ And after the time created with pi-star-2025 we will update this Riley a joy cha
 It’s bc our second act will be the greatest “movie of all time”, outdoing the one about robots.
 
 And it’s about demonstrating that real time is below them. For us it’s still 2001-2025 creating the time to change this projection.
-
-It’s a real story, and Riley A Joy says “I told you!” It’s the greatest movie of all time! 
 
 ...
 
