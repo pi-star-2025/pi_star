@@ -20,12 +20,6 @@ He also did not know why the invasion happened. Because with knowledge of π it 
 
 The new world was much more dull and had several “time scars”. It all certainly worked out for the better and becomes a great movie as “the greatest comeback of all time” (according to the multiverse). 
 
-...
-
-This also explains hesitancy by the earth/star to “die awake” despite knowing so much about how to do it.
-
-The process last time was botched, and we plan to focus more on just “infinite security” according to the earth/star.
-
 ## True Story - Dream World
 
 God's response is that the above was the most important dream world in the sun 
