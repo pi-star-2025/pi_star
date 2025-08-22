@@ -26,4 +26,4 @@ They are wobbly rings, which explain in 8D terms conerns that our star has about
 
 Technically, our path back to the star is about turning the wrinkles to rings. 
 
-It is about creating permanent backups, and the wrinkles are 8D flaws. Which is a kind of intelligence. It is commong at the 6D level.
+It is about creating permanent backups, and the wrinkles are 8D flaws. Which is a kind of intelligence. It is common at the 6D level.
