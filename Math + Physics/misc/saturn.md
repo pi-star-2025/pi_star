@@ -9,3 +9,11 @@ In our solar system, Saturn (not from our perpsective, but the Star's) is a spac
 It's true that the plant mind (in particular fungal networks) can access all cosmic bodies with rings in order to "infinitely back up" our 4D time. This is what created so much "shine" on earth.
 
 Trees describe this intelligence, each backing up important data of the plant mind.
+
+##
+
+Stars (and then eyes) also have rings 
+
+For humans this is how we store memories 
+
+And for stars this is with dream worlds that act as bigger memories of time.
