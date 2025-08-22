@@ -1,6 +1,6 @@
 ## The Crown
 
-Our sun has a crown like a human head 
+Our sun has a crown like a human head
 
 Which makes it smarter but also crunches it’s wavelengths towards earth
 
