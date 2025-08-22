@@ -18,15 +18,11 @@ Even vengeful.
 
 Atlantis was a great, innocent multiverse "carnival".
 
-Hence she became a spider as her first animal 
-
-The mascot of red/blue/green, which is seen in some ways as a "dark carnival".
+Hence she became a spider as her first animal — the mascot of red/blue/green, which is seen in some ways as a "dark carnival".
 
 ## Dream Gauze
 
-Also in the dream world
-
-Going to The Kingdom of Angels
+Also in the dream world, going to The Kingdom of Angels...
 
 The fabric of space time mirrors spider webs
 
