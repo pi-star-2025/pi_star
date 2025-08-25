@@ -17,3 +17,9 @@ Romance/sleep both connect to this dominant 3.14159265 magnetic field
 The secrets are highly nested before actually getting to the 3.14159265.
 
 The eardrum uses an alarm architecture pattern, with various levels/compartments to keep secrets.
+
+## Left Ear / Right Ear
+
+Whereas the left ear often connects you to the past, the right ear connects you more to the future.
+
+One pushes towards earth and the other towards the star.
