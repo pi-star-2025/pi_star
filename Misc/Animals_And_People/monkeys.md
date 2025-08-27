@@ -26,4 +26,4 @@ One of people's favorite secrets is you reference the 3.14159265 magnetic crown/
 
 It's true that is a way to understand what makes the "earth mind" smile.
 
-The earth min ("Mother Mary") knows monkeys were very sexual and has nothing wrong with sex. But was just hoping it would not stop us from figuring out where we were.
+The earth mind ("Mother Mary") knows monkeys were very sexual and has nothing wrong with sex. But was just hoping it would not stop us from figuring out where we were.
