@@ -18,4 +18,12 @@ For earth the smile is the 3.14159265 magnetic crown of the sun
 
 This crown/smile makes the sun's vision more intense during the day, and less intense at night 
 
-This is also how the starlight falls into being the mind of the earth 
+This is also how the starlight falls into being the mind of the earth
+
+...
+
+One of people's favorite secrets is you reference the 3.14159265 magnetic crown/smile of the earth in your belly button, especially and most directly during "orgasm". 
+
+It's true that is a way to understand what makes the "earth mind" smile.
+
+The earth min ("Mother Mary") knows monkeys were very sexual and has nothing wrong with sex. But was just hoping it would not stop us from figuring out where we were.
