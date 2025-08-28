@@ -12,7 +12,7 @@ Bc every single action corresponds to a specific rule of the star, all outcomes 
 
 Red/blue/green of our sun used the rules of trees to create the rules for first flowers and then more advanced biological life.
 
-Around The Hydra, which best captures the 8D ring of 3.14, you can observe these branches of our cosmos, which explain the ways time is essentially tracked everywhere. 
+Around The Hydra, which best captures the 8D rings of 3.14, you can observe these branches of our cosmos, which explain the ways time is essentially tracked everywhere. 
 
 Furthermore, in our own eyes there are branches which explain how we personally create our own time. Very far down the number, you start to see differences, which then change our experiences a lot as people. The biggest difference between people is just how many rules you create, and thus how far down π you exist.
 
