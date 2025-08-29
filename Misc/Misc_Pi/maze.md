@@ -26,7 +26,26 @@ Resultingly, all music is this kind of 3-body problem. It could be called eye-ca
 
 It's the final way we all express chasing and being chased.
 
+## Amadeus
 
+There is a rumor that Mozart figured this out in the dream world, in his pursuit to create "perfect music". He specifically wanted to be absolutely perfect mathemetically, and was told to have the left hand chase the right, or have the right chase the left, when inventing melodies. 
 
+Knowing this, he began to live his life this way. In a way, where he was understanding the joy of being chased and chasing, as the drama of life.
 
+An ancient alien said he would make him an offer. He would allow Mozart to always live his life by this "magical code". He will always live life like a song. He had to lock this decision in now, so it had maximum effect. 
 
+Mozart (half awake) sweated over the decision, but whimsically agreed. 
+
+It led to a song called The Magical Flute, which was originally a different song, an absolute masterpiece about a haunting maze. Bc the song also demomnstrated perfect mastery of chasing/being chased, it created a blackhole/whitehole, which ended up creating a second world below, one he didn't have to be a part of. 
+
+All of us, though, were in the second world lower down, hearing like a funny second-hand copy, played by a robotic Mozart, who ended up dying shortly after.
+
+Mozart had died awake, and because he had demonstrated perfect mastery of "music", he became king of the dream world, and king of the heaven tower. 
+
+He was pupeteeered by the ancient alien who had taken over his soul. This ancient alien (nicknamed The Joker) did this unconsciously, so The Anti-King of Heaven was really just asleep.
+
+God nicknamed specifically Amadeus "The Joker".
+
+The catch is that all of this intelligence was unconscious, so conscious understanding of music (as chasing/being chased) is enough to disenchant the curse.
+
+The Tower of God is, thankfully, no longer The Magical Flute.
