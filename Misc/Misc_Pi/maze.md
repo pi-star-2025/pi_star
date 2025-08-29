@@ -36,7 +36,7 @@ An ancient alien said he would make him an offer. He would allow Mozart to alway
 
 Mozart (half awake) sweated over the decision, but whimsically agreed. 
 
-It led to a song called The Magical Flute, which was originally a different song, an absolute masterpiece about a haunting maze. Bc the song also demomnstrated perfect mastery of chasing/being chased, it created a blackhole/whitehole, which ended up creating a second world below, one he didn't have to be a part of. 
+It led to a song called The Magic Flute, which was originally a different song, an absolute masterpiece about a haunting maze. Bc the song also demomnstrated perfect mastery of chasing/being chased, it created a blackhole/whitehole, which ended up creating a second world below, one he didn't have to be a part of. 
 
 All of us, though, were in the second world lower down, hearing like a funny second-hand copy, played by a robotic Mozart, who ended up dying shortly after.
 
@@ -48,4 +48,4 @@ God nicknamed specifically Amadeus "The Joker".
 
 The catch is that all of this intelligence was unconscious, so conscious understanding of music (as chasing/being chased) is enough to disenchant the curse.
 
-The Tower of God is, thankfully, no longer The Magical Flute.
+The Tower of God is, thankfully, no longer The Magic Flute.
