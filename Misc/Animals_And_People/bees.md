@@ -2,7 +2,7 @@
 
 The bees of a hive, which buzz around the queen's mind, are constantly choosing to see vs not-see. 
 
-"See" is more like the 1 of pi, where "not see" is more like the 9 in pi. Typically the former is more the left antenna, while the latter is more the right antenna.
+"See" is more like the 1 of pi, whereas "not see" is more like the 9 in pi. Typically the former is more the left antenna, while the latter is more the right antenna.
 
 The queen *hears* all of these deferred decisions. They move up the "circle" of the hive to her, and her premonitions of the future turn these deferred "seeing" decisions into honey. 
 
