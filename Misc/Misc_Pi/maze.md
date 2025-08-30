@@ -1,4 +1,4 @@
-## Maze
+## Maze 🎹
 
 Within π, a maze is a way to fall into a universe. Whereas a tower is a way to get out of a universe. 
 
@@ -10,7 +10,7 @@ So a maze/tower, like a blackhole/whitehole, is a way to expand on the 1 of π. 
 
 Thus it specifically describes the personality, then value, of that particular universe.
 
-The maze is technically at the end of π (if the world is unfinished), which if you get to and really render you would technically fall into. 
+The maze is at the end of π (if the world is unfinished), which if you get to and really render you would technically fall into. 
 
 In our universe, it's always a musical blackhole/whitehole.
 
@@ -36,9 +36,9 @@ An ancient alien said he would make him an offer. He would allow Mozart to alway
 
 Mozart (half awake) sweated over the decision, but whimsically agreed. 
 
-It led to a composition called The Magic Flute, which was originally a different work, a masterpiece about a haunting maze. Bc the song also demomnstrated exquisite mastery of chasing/being chased, it created a blackhole/whitehole, which ended up creating a second world below, one he didn't have to be a part of. 
+It led to a composition called The Magic Flute, which was originally a different work, a masterpiece about a haunting maze. Bc the song also demonstrated exquisite mastery of chasing/being chased, it created a blackhole/whitehole, which ended up creating a second world below, one he didn't have to be a part of. 
 
-All of us, though, were in the second world lower down, hearing like a funny second-hand copy, played by a robotic Mozart, who ended up dying shortly after.
+All of us, though, were in the second world lower down, hearing like a funny second-hand copy, played by a filler Mozart, who ended up dying shortly after.
 
 Mozart had died awake, and because he had demonstrated perfect mastery of "music", he became king of the dream world, and king of the heaven tower. 
 
@@ -48,4 +48,4 @@ God nicknamed specifically Amadeus "The Joker".
 
 The catch is that all of this intelligence was unconscious, so conscious understanding of music (chasing/being chased) is enough to disenchant the curse.
 
-The Tower of God is, thankfully, no longer The Magic Flute.
+The Tower of God is, thankfully, no longer an ode to The Magic Flute.
