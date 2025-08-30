@@ -48,11 +48,9 @@ God nicknamed specifically Amadeus "The Joker".
 
 The catch is that all of this intelligence was unconscious, so conscious understanding of music (chasing/being chased) is enough to disenchant the curse.
 
-The Tower of God is, thankfully, no longer an ode to The Magic Flute.
-
 ## “Live Life like a Song”
 
-In 2022, Mozart was woken up and backed down. 
+In 2022, Mozart was woken up and yielded.
 
 He said the core reason is so he could “die gracefully” and keep having an impact in larger worlds (ex: 7-forces, 20-forces).
 
@@ -62,6 +60,6 @@ He said unconsciously he had learned in dreams that there was an evil queen of t
 
 This is because the day/night of our world became used secretly for gender, and many men always live in the “night”. 
 
-Mozart was someone who bounced between worlds, and thus had a real alter ego (half in the dark). It was more this “half in the dark” that wanted to be a free man, without the day/night spell. So the “half in the dark” crafted a “song” for this intent.
+Mozart was someone who bounced between worlds, and thus had a real alter ego (half-in-the-dark). It was more this “half-in-the-dark” that wanted to be a free man, without the day/night spell. So the “half-in-the-dark” crafted a “song” for this intent.
 
 The Mozart lower down turned into Amadeus of the Night, and whoever was left below was a puppet.
