@@ -2,7 +2,7 @@
 
 Around 3.1415926535897932384626 of π you start to notice both waves and corresponding wavelets.
 
-These are like strong and nuclear force derivatives. Furthermore, waves are always hot and wavelets are always cold. Thus, it's typically wavelets that produce cold fusion.
+These are like strong and weak nuclear force derivatives. Furthermore, waves are always hot and wavelets are always cold. Thus, it's typically wavelets that produce cold fusion.
 
 These patterns can be described as lightening in 2D, or "scars".
 
