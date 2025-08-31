@@ -1,6 +1,6 @@
 ## Wavelets
 
-It's said around 3.1415926535897932384626 of π you start to notice both waves and corresponding wavelets.
+Around 3.1415926535897932384626 of π you start to notice both waves and corresponding wavelets.
 
 These are like strong and nuclear force derivatives. Furthermore, waves are always hot and wavelets are always cold. Thus, it's typically wavelets that produce cold fusion.
 
