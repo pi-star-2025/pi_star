@@ -10,4 +10,10 @@ In fact, if there is time-traveling, it leaves large 6D scars.
 
 In terms of the "maze/tower" of the universe, and "music of the mind", the waves are chasing, while the wavelets are being chased. Or, the waves are like branches, and the wavelets are like twigs.
 
-This pattern could exist as just red/blue from a star, or with a third force (ex: red/blue/green). 
+This pattern could exist as just red/blue from a star, or with a third force (ex: red/blue/green).
+
+## Language
+
+Wavelets are the source of language.
+
+You think with wavelets more on the left side of the brain and waves more on the right side.
