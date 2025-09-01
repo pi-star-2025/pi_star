@@ -6,7 +6,7 @@ Red/blue/green vision of plants is created bc nitrogen sees 5 nested layers of c
 
 The sun deferred understanding why, so that the red/blue/green could describe red/blue/gold in more detail and, in doing so, reference the cosmic and spiritual history of Atlantis.
 
-Gold has 5 shells + 1 "seer". The π of red/blue/gold would emphasize this architecture, whereas 3.1415 emphasizes the 5 valence elctrons of nitrogen as the seer.
+Gold has 5 shells + 1 "seer". The π of red/blue/gold would emphasize this architecture, whereas 3.1415 emphasizes the 5 valence electrons of nitrogen as the seer.
 
 Cold fusion on earth is initiated when wavelets of π (ex: 3.1415926535897932384626433832795028841971693993751058209749445923078164062862089986280348253421170679) communicate via 5 shells with waves. 
 
