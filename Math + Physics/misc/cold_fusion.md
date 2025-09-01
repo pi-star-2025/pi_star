@@ -19,3 +19,11 @@ Evidence of cold fusion via 5 layers can be seen most essentially in rainbows. T
 Also, the 5 layers can be observed in the wings of butterflies, or flower spirals, or snakes/reptiles.
 
 Whenever the wavelets within π connect with the larger waves and mimick the quantum/atomic parallels of gold, cold fusion is manifested.
+
+## Liquid Gold
+
+Our eyes mimic liquid gold, which capture n layers, instead of 5, where n → ∞
+
+Then within earth red/blue/green, golden gas is mimicked by feelings of "humor" (4D) and "magic" (6D). Golden gas simulates the future of the force of gold (music). The third-eye (between the eyes) has continuous traces of golden gas.
+
+Green, meanwhile, is the force of planting, used for growing very specific time. It moves slow, with seasons, and due diligence/accounting naturally (via nitrogen) so that you can patiently develop a plan.
