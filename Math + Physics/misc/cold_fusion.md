@@ -28,7 +28,6 @@ Then within earth red/blue/green, golden gas is mimicked by feelings of "humor" 
 
 Green, meanwhile, is the force of planting, used for growing very specific time. It moves slow, with seasons, and due diligence/accounting naturally (via nitrogen) so that you can patiently develop a plan.
 
-
 ## Rainbow
 
 The way we see carbon, oxygen, and nitrogen, we have a red/blue/green way of seeing that allows us to see "fire" as liquid gold and thus hell. 
