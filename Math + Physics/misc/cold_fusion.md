@@ -27,3 +27,16 @@ Our eyes mimic liquid gold, which capture n layers, instead of 5, where n â†’ âˆ
 Then within earth red/blue/green, golden gas is mimicked by feelings of "humor" (4D) and "magic" (6D). Golden gas simulates the future of the force of gold (music). The third-eye (between the eyes) has continuous traces of golden gas.
 
 Green, meanwhile, is the force of planting, used for growing very specific time. It moves slow, with seasons, and due diligence/accounting naturally (via nitrogen) so that you can patiently develop a plan.
+
+
+## Rainbow
+
+The way we see carbon, oxygen, and nitrogen, we have a red/blue/green way of seeing that allows us to see "fire" as liquid gold and thus hell. 
+
+In addition, we could see golden sunlight as heavenly, bc we see it as golden gas via the clouds, which makes the red look violet/pink.
+
+So rainbows are an effect, where bc of nested parallels, our sun is *allowed* to show us the red/blue/gold vision that creates the whole spectrum of red/orange/yellow/green/blue/indigo/violet.
+
+At a root level, they are not there.
+
+It's bc of layering the carbons enough. A basic example is the rings of a tree, to create an 8D impression, that there is qunatumly golden intelligence.
