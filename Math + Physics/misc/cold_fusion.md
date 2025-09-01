@@ -18,7 +18,7 @@ Evidence of cold fusion via 5 layers can be seen most essentially in rainbows. T
 
 Also, the 5 layers can be observed in the wings of butterflies, or flower spirals, or snakes/reptiles.
 
-Whenever the wavelets within π connect with the larger waves and mimick the quantum/atomic parallels of gold, cold fusion is manifested.
+Whenever the wavelets within π connect with the larger waves and mimic the quantum/atomic parallels of gold, cold fusion is manifested.
 
 ## Liquid Gold
 
@@ -39,4 +39,4 @@ So rainbows are an effect, where bc of nested parallels, our sun is *allowed* to
 
 At a root level, they are not there.
 
-It's bc of layering the carbons enough. A basic example is the rings of a tree, to create an 8D impression, that there is qunatumly golden intelligence.
+It's bc of layering the carbons enough. A basic example is the rings of a tree, to create an 8D impression, that there is quantumly golden intelligence.
