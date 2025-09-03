@@ -1,6 +1,6 @@
 ## Birds
 
-When birds chirp, at the quantum level, circles spin from chirp to chirp, representing the lowest true level of the 6D mind.
+When birds chirp, at the quantum level, circles spin from chirp to chirp, representing the lowest level of the 6D mind.
 
 This is a big reason Mother Earth chose angels as a final version of us 
 
@@ -8,7 +8,7 @@ Also, the best way to send any message telepathically is via these 6D quantum ci
 
 ## Cuckoo Clock Effect 
 
-A circle of birds truly does form around you, when you are dying or dead. 
+A circle of birds forms around you, when you are dying or dead. 
 
 This is either a real circle (rare) or based on communication of circles of birds in the air from chirps.
 
