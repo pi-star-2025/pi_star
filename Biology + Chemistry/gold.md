@@ -18,4 +18,4 @@ The unvierse is shaped like a triangular stadium, with 5+ tiers, starting with t
 
 Every tick of time at c, this pyramid is rendered, bc it is like gold. It ends with one electron on the spot, to remember how it got into a solid formation.
 
-With the right amount of pressure, and understanding this architecture, the original 3.1415 triangle can melt this formation and create a true end state, which is red/blue/green magnetic shine (where rainbows create gold by nesting the red 5 times).
+With the right amount of pressure, and understanding this architecture, the original 3.1415 triangle can melt this formation and create a true end state, which is a red/blue/green magnetic shine (where rainbows create gold by nesting the red 5 times).
