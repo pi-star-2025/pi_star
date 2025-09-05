@@ -20,11 +20,11 @@ Also, with biological life there are two core personalities. One is blue going u
 
 Potassium describes 3.14 in a unique way. 
 
-The nucleus (outer eleectron) and 2 electrons are a triangle.
+The nucleus (outer electron) and 2 electrons are a triangle.
 
 Then you describe c^2, or 4^2, with the middle 16 electrons.
 
-Sodium meanwhile has 8 electrons, bc it has *not* slowed down the c^2 mirror.
+Sodium meanwhile has 8 middle electrons, bc it has *not* slowed down the c^2 mirror.
 
 Hence, *really* sodium describes 3.14, whereas potassium describes 3.1415.
 
