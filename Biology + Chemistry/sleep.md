@@ -1,8 +1,8 @@
 ## Sleep
 
-Sleep is a phenomena in our particular universe, which started trying to find/understand the force of gold (to understand music).
+Sleep is a phenomenon in our particular universe, which started trying to find/understand the force of gold (to understand music).
 
-At a quantum level, gold has a relfexive reaction, which is the quantum equivalent to dreams. It's the phenomena where if you have one finished golden triangle, there is always a shadow second triangle, where you "dream" about the opposite 5-tier hierarchy, in order to create a finished product.
+At a quantum level, gold has a reflexive reaction, which is the quantum equivalent to dreams. It's the phenomena where if you have one finished golden triangle, there is always a shadow second triangle, where you "dream" about the opposite 5-tier hierarchy, in order to create a finished product.
 
 Thus in our universe, whichever hierarchy does not actually have control of the crown/top of the sun (the sun's mind mimics a golden triangle at the top), then has control of the clouds (reflexive golden dream world).
 
