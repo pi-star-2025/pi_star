@@ -15,3 +15,19 @@ Sodium for 4D/6D red/blue/green circles moves electrical currents up.
 This is due strictly due to a photonic (light) preference for one speed or another. 
 
 Also, with biological life there are two core personalities. One is blue going up; the other is pink (slow red) going down.
+
+## 3.1415
+
+Potassium describes 3.14 in a unique way. 
+
+The nucleus (outer eleectron) and 2 electrons are a triangle.
+
+Then you describe c^2, or 4^2, with the middle 16 electrons.
+
+Sodium meanwhile has 8 electrons, bc it has *not* slowed down the c^2 mirror.
+
+Hence, *really* sodium describes 3.14, whereas potassium describes 3.1415.
+
+In this case, the .15 element is derived from whatever uses potassium as its compass.
+
+In this case, nitrogen decisions reference the sodium/potassium +/- electrical current, which means that sodium/potassium is the core "magnetic" field for red/blue/green vision at the 4D level.
