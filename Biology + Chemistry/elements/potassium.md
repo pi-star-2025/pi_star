@@ -12,7 +12,7 @@ Potassium for 4D/6D red/blue/green circles moves electrical currents down.
 
 Sodium for 4D/6D red/blue/green circles moves electrical currents up.
 
-This is due strictly due to a photonic (light) preference for one speed or another. 
+This is due strictly due to a photonic (light) preference for one quantum speed or another[^1]. 
 
 Also, with biological life there are two core personalities. One is blue going up; the other is pink (slow red) going down.
 
@@ -41,3 +41,5 @@ In this case, nitrogen decisions reference the sodium/potassium +/- electrical c
 The first is not alive without the second.
 
 And the second depends on nitrogen [2, 5] as the seer, the .15 in π.
+
+[^1]: At a quantum level [2, 8, 1] comes together faster than [2, 8, 8 1], offering 2 choices of speed.
