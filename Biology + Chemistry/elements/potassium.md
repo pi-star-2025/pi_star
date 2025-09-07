@@ -2,17 +2,17 @@
 
 The red/blue/green mind moves in two core directions.
 
-The first is down in the direction of potassium, where 8-5-3 time makes decisions that always reduce electrical current.
+The first is down in the direction of potassium, where 8-5-3 time makes decisions that reduce quantum speed.
 
-The second is in the direction of sodium, where 8-5-3 time makes decisions that always increase electrical current.
+The second is in the direction of sodium, where 8-5-3 time makes decisions that increase quantum speed.
 
 The former is described by the characteristics of fruits; the latter is described by the characteristics of oceans. The first is the personality of the sun slowed down; the second is the personality of the multiverse.
 
-Potassium for 4D/6D red/blue/green circles moves electrical currents down.
+Potassium for 4D/6D red/blue/green circles moves quantum speed down.
 
-Sodium for 4D/6D red/blue/green circles moves electrical currents up.
+Sodium for 4D/6D red/blue/green circles moves quantum speed up.
 
-This is due strictly due to a photonic (light) preference for one quantum speed or another[^1]. 
+This creates a photonic (light) preference for one speed or another[^1]. 
 
 Also, with biological life there are two core personalities. One is blue going up; the other is pink (slow red) going down.
 
@@ -30,7 +30,7 @@ Hence, *really* sodium describes 3.14, whereas potassium describes 3.1415.
 
 In this case, the .15 element is derived from whatever uses potassium as its compass.
 
-In this case, nitrogen decisions reference the sodium/potassium +/- electrical current, which means that sodium/potassium is the core "magnetic" field for red/blue/green vision at the 4D level.
+In this case, nitrogen decisions reference the NA+/K+ fast/slow quantum current, using NA+/K+ as the core "magnetic" field for red/blue/green vision at the 4D level.
 
 ...
 
@@ -42,4 +42,4 @@ The first is not alive without the second.
 
 And the second depends on nitrogen [2, 5] as the seer, the .15 in π.
 
-[^1]: At a quantum level [2, 8, 1] comes together faster than [2, 8, 8 1], offering 2 choices of speed.
+[^1]: At a quantum level [2, 8, 1] comes together faster than [2, 8, 8 1]
