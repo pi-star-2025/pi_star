@@ -1,12 +1,14 @@
-## Serotonin
+## Serotonin vs Pheromones
 
-Those who smell deeply make a lot more serotonin 
+Pheromones are chemicals to create higher/lower pressure amongst a web of individuals. For example, bee stings are when pheromones create high pressure. Ant queens put pressure on workers, which gets them crawling faster.
 
-And work in more seasonal and plant based ways naturally (red/blue/green)
+Serotonin meanwhile stores deferred Nitrogen decisions. It actually stores why you feel more/less pressure, instead of just transmitting pressure itself.
 
-Smelling deeply is the No 1 way to enhance serotonin output. You then move on from things faster and with meaning
+## Serotonin - Smell
 
-This has the effect of cooling down your body and lowering the length of your π
+Those who smell deeply make a lot more serotonin and their minds have more seasonal intelligence. You  move on from things faster and with meaning
+
+This has the effect of cooling down your body and lowering the length of your π.
 
 ...
 
