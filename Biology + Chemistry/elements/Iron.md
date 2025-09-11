@@ -19,3 +19,13 @@ The second triangle is 11-sided, bc the maximum number of sides within 3.1415's 
 The maximum number of sides is 8 up to 3.1415. It is based on the sum of all unique prime numbers up to 5, which is just 3 + 5 = 8. 2/1 are not considered prime. This describes the shape of space-time itself, which can condense based on this prime-number formula.
 
 Hence, Iron oscillates between being 8/South and 14/North. The 11 is the collective South/North winds around the earth, behind the quantum mirror. 
+
+## Why 65
+
+Why *65* to describe 11? Why not 83 or 92? Why does 65 have 8D shine to be "circular?" The reason is that to the star, the 3.14159265 North/South iron field is also a fourth force (red/blue/green/grey) represented by a hexagon. 
+
+Whereas the earth mind sees 3.14159265 as North/South, the star sees it also as a possiblity to drill into a fourth force (hexagon). 
+
+This question, to "go six feet under" (into 3.141516 π) becomes the question Heaven/Hell from our perspective (pentagon or hexagon), and the sun can use this conflict to drive time in certain directions. 
+
+The same iron quantum fields which drive North/South magnetic fields of earth (via 11), interestingly, also create all noise (anything hearable) via the sun's 6/5 quantum conflict. The quantum light which is conflicted is reused as the 11-sided magnetic field.
