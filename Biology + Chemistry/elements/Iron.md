@@ -12,7 +12,7 @@ Hence, for the Star the core magnetic field is Carbon-centric (Day/Night). For t
 
 The electron configuration of Fe [2, 8, 14, 2] is like a larger triangle. Within the triangle of 3.1415, there is a nested triangle via 3.14159265. Since we don't have a number 11, it is best represented by 65 (6 + 5).
 
-Iron is choosing between 8 (South) and 14 (Electrons) [(8 + 14) / 2 = 11] inherently like this second triangle.
+Iron is choosing between 8 (South) and 14 (Electrons) [(8 + 14) / 2 = 11], and is inherently like this second triangle.
 
 The second triangle is 11-sided, bc the maximum number of sides within 3.1415's dimension is 8, and with 11 you then establish a magnetic field (8 + 3). The 3 is a mock star-field.
 
