@@ -37,3 +37,11 @@ Base 10 is a useful number system. Anything in 3D space can be described with ma
 So 10, via decimal places, directly translates to 4D jumps.
 
 However, a limitation is then needing 2 digits to describe 65 (instead of a symbol representing 11)
+
+## Iron/Nickel/Copper
+
+Any light within 3.1415, can have a maximum of 9 sides. Technically an array (3.141592) has 10 sides and represents "time", instead of a 10-sided shape.
+
+And then anything with more than 10 sides only exists with quantum oscillation.
+
+For example, a) Iron is 11-sided (between 8 and 14), b) Nickel is 12-sided (between 8 and 16), and c) Copper is 13-sided (between 8 and 18).
