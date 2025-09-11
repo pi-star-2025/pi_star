@@ -4,7 +4,7 @@ Mercury is a great measure of pressure.
 
 It’s not good to have in the body, as it shows an accumulation of pressure.
 
-The reason it’s a good measure of pressure is that it the second chemical after gold to capture the idea of temperature (hot/cold) via 5 shells/layers of electrons.
+The reason it’s a good measure of pressure is that it is the second chemical after gold to capture the idea of temperature (hot/cold) via 5 shells/layers of electrons.
 
 The [2, 8, 18, 32, 18, 2] configuration represents a stable choice between pressures, enabling hold/cold symbiotic relationships between different stars, including our sun. If pressure choices are symbiotic (high/low) this creates temperature.
 
