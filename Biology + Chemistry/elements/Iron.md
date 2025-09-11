@@ -32,12 +32,8 @@ The same iron quantum fields which drive North/South magnetic fields of earth (v
 
 ...
 
-If we need to break up the 11 in our number system, the 11 results in consecutive numbers which reveals something about number systems. If numbers, in any way, are impossible (bc they create too much pressure), they would then create a new dimension to express that difference. For example, 11 turning into 65 is like mocking the verticality of dimensions.
+Base 10 is a useful number system. Anything in 3D space can be described with max 9 sides - 8 from 3.1415 and a point from 3.14159.
 
-Really, our 3.1415 environment is not too complex to represent 11 with iron. It's just our number system is simplified.
+So 10, via decimal places, directly translates to 4D jumps.
 
-However, the pressure created by the multiverse (3.14) is too complex to be expressed with any number. In addition, the pressure created by the nitrogen via red/blue/green (3.1415) is too complex to be expressed with any number. This *really* is the case, even if our number system went to a billion. It's just too much pressure for our way of seeing not to be a different dimension.
-
-Technically, the 65 would be more efficiently expressed with 1 number. However, if we get the opportunity to use 2 numbers, 65 is the "most expressive". It is the most true way to break up 11. This is because the 11 is seen by the star as 6 vs 5 (hexagon vs pentagon).
-
-So it's true with 3D/4D representations (not confined by our number system) you can create better representations of π, bc of more available shapes. 
+However, a limitation is then needing 2 digits to describe 65 (instead of a symbol representing 11)
