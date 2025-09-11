@@ -20,7 +20,7 @@ More than 5 positions creates more pressure than necessary, but works while "ali
 
 With less than 5 positions, there is no mathemtical way to understand "music/war" perpetually.
 
-So we all naturally rank people in our society 1-5. And often times it can be more than 5. The number of columns in your spine is a good indication, or for a tree, it's the number of rings, of how much pressure (antigravitational power) you think with. For example, dinsoaurs thought with a *a lot* of pressure.
+So we all naturally rank people in our society 1-5. And often times it can be more than 5. The number of columns in your spine is a good indication, or for a tree, it's the number of rings, of how much pressure (antigravitational power) you think with. For example, dinsoaurs thought with *a lot* of pressure.
 
 The pressure is similar to the quantum molecular patterns of gold, and to the air pressure in toes. The biggest toe is the "1", and the smallest is the "5".
 
