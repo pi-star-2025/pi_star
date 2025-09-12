@@ -20,4 +20,4 @@ We are able to use our full skull, at first, exclusively because of the fire in 
 
 They also then help us stand and walk.
 
-When these electrons give out at the end of the day, we fall asleep. Whereas these electrons become more our unconscious during the day, they are our conscious in dreams. So by asking yourself "why did I burn t be here?" you can channel these electrons and make it easier to go between reality and dreams.
+When these electrons give out at the end of the day, we fall asleep. Whereas these electrons become more our unconscious during the day, they are our conscious in dreams. So by asking yourself "why did I burn to be here?" you can channel these electrons and make it easier to go between reality and dreams.
