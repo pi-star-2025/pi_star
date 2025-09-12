@@ -21,3 +21,7 @@ We are able to use our full skull, at first, exclusively because of the fire in 
 They also then help us stand and walk.
 
 When these electrons give out at the end of the day, we fall asleep. Whereas these electrons become more our unconscious during the day, they are our conscious in dreams. So by asking yourself "why did I burn to be here?" you can channel these electrons and make it easier to go between reality and dreams.
+
+## Choke/Vomit/Sneeze
+
+Choking, vomitting, and sneezing references the deep belly, which references these DMT electrons. It's a soft reference, but helps to locate the DMT gateway. It's a similar point for mother/child (umbilical cord).

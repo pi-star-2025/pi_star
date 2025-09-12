@@ -22,7 +22,7 @@ There just is no need and no shine, but it helps us understand nested forcefield
 
 Your own personal "quest" is in your belly button, also protected by similar forcefields. They are like nested eggs.
 
-It actually comes from the umbilical chord and true point of conception in your body, best referenced by the spirals of the belly-button.
+It actually comes from the umbilical cord and true point of conception in your body, best referenced by the spirals of the belly-button.
 
 This quest is *your* reason for falling into life. It's unconscious and very personal. 
 
