@@ -8,7 +8,7 @@ A straight line down into our star's (sun's) 6D vision is the noise of 3.1415926
 
 This will burn electrons (or make them very cold) to be drilled into this vision. Hence, there needs to be a "fantasy" to burn. In addition, there needs to be these huge pheromone-sized DMT chemicals, which are present when a mother gives birth. These chemicals know how to ask "will you burn" to persist here? And then keep the electrons which burn to persist. 
 
-This allows the DMT to transfer you soul from higher in the star's vision to lower down. 
+This allows the DMT to transfer your soul from higher in the star's vision to lower down. 
 
 The fantasy is related to simulations, which are more clear from higher in the 6D vision. These electrons, embedded with the simulations, then start your new life via the carousels of DMT. The more complex the DMT spell which brought you down, the more you can carry about past lives and your life mission.
 
