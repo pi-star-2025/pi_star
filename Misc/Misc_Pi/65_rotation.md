@@ -8,7 +8,7 @@ The 6 is to add the star’s electron, and the 5 is to lose the star’s electro
 
 For example, iron works well on earth. 
 
-For the sun mind, 65 is then the rotation of the earth based on the element iron being “11”. The same 65 electron in-and-outs occur with all planet/stars, but with different elements being the “11” potentially. For example it could even be due to a gas or a liquid. It just needs be a 6/5 electron North/South sequence, representing exactly two ticks of time (at c).
+For the sun mind, 65 is then the rotation of the earth based on the element iron being “11”. The same 65 electron in-and-outs occur with all planets/stars, but with different elements being the “11” potentially. For example it could even be due to a gas or a liquid. It just needs be a 6/5 electron North/South sequence, representing exactly two ticks of time (at c).
 
 ...
 
