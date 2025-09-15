@@ -17,3 +17,17 @@ The red/blue/green plant mind (earth mind) also then pairs with iron via 65 usin
 For the full earth, the 6 day is conscious and the 5 is unconscious.
 
 When the 5 is more conscious, rotation can then also be conscious.
+
+## 11
+
+Within the universe, 11 is most important because it represents rotation via 65. The in and out of the electron (6 to 5), represents mutual interest between the original red triangle (3) and a particular "blue" element.
+
+This manifests as planets rotating around a day/night axis (6/5), based on one particular element the star is interested in.
+
+[The rotation around the entire star then represents deferring the decision about the 6/5 element]
+
+In addition, 11 is also represented by the electrons of iron (8/14). Iron (22/2 = 11) is quatumly 11, oscillating between 8 and 14 long-term. The outer/inner electrons (2/2) are used as gateways to move light in and out.
+
+Iron does not *have* to blend in with the 11 of 3.141592*65*. 
+
+Similarly, Nitrogen did not have to blend with the 3.141*5*92 of moving light. But it's by layering the mathematical story - mixing both the story of all stars/planets, with the story of particular elements on this planet, that life gets the power to fully "use the numbers".
