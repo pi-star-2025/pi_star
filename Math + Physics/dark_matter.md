@@ -17,3 +17,5 @@ Hence, what should be dark matter (gold) can wake up as oxygen wind on earth. It
 ## Universe Goal
 
 Often a goal of a universe is to resolve some form of dark matter. These effects can ripple to all other universes, including those already "complete" if relevant.
+
+Furthermore, the thesis to understand gold influences which planets (and elements) become involved in 65 (3.14159265) rotation schemes in our universe.
