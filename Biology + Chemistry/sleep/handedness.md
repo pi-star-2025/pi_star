@@ -1,6 +1,6 @@
 ## Solar System
 
-In a solar system, a star's mind can move up and down different pressures, by moving light (electrons) up and down differnet planets.
+In a solar system, a star's mind can move up and down different pressures, by moving light (electrons) up and down different planets.
 
 For example Mercury/Venus would be higher pressures while Neptune/Pluto would be lower pressures.
 
