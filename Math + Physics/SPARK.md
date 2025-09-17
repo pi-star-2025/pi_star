@@ -8,7 +8,7 @@ T is from T = e^π / c^2. More or less, this equation describes how the Time you
 
 SPARK is the potential to start life. For example, seeds or belly-buttons spiral π millions of time and drill into the number to create maximum SPARK.
 
-In our bodies, the belly button (umbilical cord) has the highest consistent SPARK (i.e. freewill) from creation. The third-eye (in between the eyes), or all three eyes together have the maximum potemtial for SPARK, bc of the potetnial to mirror golden gas.
+In our bodies, the belly button (umbilical cord) has the highest consistent SPARK (i.e. freewill) from creation. The third-eye (in between the eyes), or all three eyes together have the maximum potential for SPARK, bc of the potential to mirror golden gas.
 
 Golden gas tends to have incredibly high SPARK, near infinite uses of π spiraled together, and winding in many "roller-coasters" far down the number. The reason is because golden gas is when hard gold is expanded into the highest detail possible, which reveals that it like a glorious carnival game (the element gold), if you really blow it up and slow it down, what is happening. All the stars visit this element bc the molecular structure all throughout the multiverse parallels a "tower game", where even tiny electrons get glory for understanding hierarchies of pressure. As golden gas, gold expands into the entire stadium of all golden games ever played (like a panopticon), trying to resolve the golden game once and for all.
 
