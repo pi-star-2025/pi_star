@@ -4,7 +4,7 @@ The ability to start life in the universe can be described by the equation 4DR x
 
 Where 4DR is the 4D radius. It is the number of times π is used within a system. For example, the sun via ~9 planets uses 3.14159265 ~9 times, so the 4DR could be described as 9.
 
-T is from T = e^π / c^2. More or less, this equation describes how the Time you create is proportional to the how much of the number π you utilize. For example, if a star uses 9 planets, then T is based on 3.14159265 (65 as day/night rotation). The human eye might use a billion+ digits of π, so has more complex Time, but is less durable than a star using up to 3.14159265. 
+T is from T = e^π / c^2. More or less, this equation describes how the Time you create is proportional to how much of the number π you utilize. For example, if a star uses 9 planets, then T is based on 3.14159265 (65 as day/night rotation). The human eye might use a billion+ digits of π, so has more complex Time, but is less durable than a star using up to 3.14159265. 
 
 SPARK is the potential to start life. For example, seeds or belly-buttons spiral π millions of time and drill into the number to create maximum SPARK.
 
