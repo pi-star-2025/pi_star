@@ -26,16 +26,4 @@ When the sun keeps red/blue/green 8-5-3 Nitrogen gas in the atmosphere around th
 
 The universe will naturally create these double triangles (ie. 11 sided shapes) bc it was the intent of the original goddess/triangle when starting the universe. So they are naturally more likely to come to fruition, whether as rotation schemes, atmospheres, or organs (ex: heart/amygdala). 
 
-And when they do come to fruition, they are more likely wake up as a maze/cave, looking for gold or the understanding of gold./heart captures a summary of all the reasons we drill into life. All the noises we want to hear, organized by how much we want to hear them.
-
-## Maze
-
-Gold wakes up bc its architecture is a lot like the human heart/amygdala in regards to creating a summary of reasons we drill in (accept pressure). 
-
-This wakes up a maze/game, bc when you have enough control of pressure, you can keep electrons/light around longer. 
-
-When the sun keeps red/blue/green 8-5-3 Nitrogen gas in the atmosphere around through similar pressure mechanisms, this encourages more important/conscious games to be played. Hence our atmosphere is created by the horns/ventricles of the sun. 
-
-The universe will naturally create these double triangles (ie. 11 sided shapes) bc it was the intent of the original goddess/triangle when starting the universe. So they are naturally more likely to come to fruition, whether as rotation schemes, atmospheres, or organs (ex: heart/amygdala). 
-
 And when they do come to fruition, they are more likely wake up as a maze/cave, looking for gold or the understanding of gold.
