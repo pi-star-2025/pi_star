@@ -40,7 +40,7 @@ It could be a simple or complex reason this is happening.
 
 ## Tree Ozone
 
-Trees in a similar fashion have opinions about smells which create the ozone, with bigger than smaller branches of opinions, about 8-5-3 time. The intelligence is based on always liking certain smells and always not liking certain smells, which keep a certain atmosphere in place, allowing life to stick around in predictable ways. This includes after biological death.
+Trees in a similar fashion have opinions about smells which create the ozone, with bigger then smaller branches of opinions, about 8-5-3 time. The intelligence is based on always liking certain smells and always not liking certain smells, which keep a certain atmosphere in place, allowing life to stick around in predictable ways. This includes after biological death.
 
 The Tree Ozone can be oppressive like a forcefield, preventing 8-5-3 from going back to the sun, even if it doesn’t want to continue here. The Tree Ozone knows to increase its chance of finding gold, creating caves/games to make people continuously fall back in, when possible.
 
