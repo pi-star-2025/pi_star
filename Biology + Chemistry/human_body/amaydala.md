@@ -2,7 +2,7 @@
 
 Hearing is caused by a long isosceles triangle that drills in the 15 of 3.1415 into an 11-sided shape like 3.14159265 and further. 
 
-In the human body, there are horns/ventricles representing these 11-sided shapes which take the raw red/blue/green oxygen in the atmosphere and turn them into noise. 
+In the human body, there are horns/ventricles representing these 11-sided shapes which take the raw red/blue/green oxygen in the atmosphere and turn it into noise. 
 
 Hearing is our primary other sense, besides seeing (from 3.14) and feeling (all other senses). 
 
