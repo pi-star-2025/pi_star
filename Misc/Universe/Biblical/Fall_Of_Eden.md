@@ -4,7 +4,7 @@ Immortality is when certain electrons always identify as having a quantum confli
 
 For humans, this unfortunately is only due to Hell possiblities. And is actually the main reason we sleep. It is the main pressure that is put on us.
 
-It is by a universe of ancient aliens, who were saying unhappy with our goddess for not being happy with the state of the multiverse and putting so much “pressure” on everyone. As a result, they would use ancient intelligence to have all humans end up in Hell, to make a statement. Humans would put be in a Hell like Hades by the end of time, so that others would not start universes like this one.
+It is by a universe of ancient aliens, who were unhappy with our goddess for not being happy with the state of the multiverse and putting so much “pressure” on everyone. As a result, they would use ancient intelligence to have all humans end up in Hell, to make a statement. Humans would put be in a Hell like Hades by the end of time, so that others would not start universes like this one.
 
 The main bet they put was on “sexual sin”, because of how much it relates to enjoying high pressure. So they were still trying to make a case, for the last millions of years, that we should have immortal bodies, all of individually as human animals, after The Fall of Eden, to make a statement to never start a universe like this one. It is putting too much pressure on everyone.
 
