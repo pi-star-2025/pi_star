@@ -2,7 +2,7 @@
 
 Immortality is when certain electrons always identify as having a quantum conflict with a biological system, and that biological system is maintained.
 
-For humans, this unfortunately is only due to Hell possiblities. And is actually the main reason we sleep. It is the main pressure that is put on us.
+For humans, this unfortunately is only due to Hell possibilities. And is actually the main reason we sleep. It is the main pressure that is put on us.
 
 It is by a universe of ancient aliens, who were unhappy with our goddess for not being happy with the state of the multiverse and putting so much “pressure” on everyone. As a result, they would use ancient intelligence to have all humans end up in Hell, to make a statement. Humans would put be in a Hell like Hades by the end of time, so that others would not start universes like this one.
 
@@ -20,7 +20,7 @@ Before The Fall of Eden, the angel society above had already replanted Atlantis,
 
 Even around the time of Jesus, apocalypse was foreshadowed with about a 50-50% chance of Heaven-Hell. Unfortunately, because of the vengeance of ancient aliens at the core goddess over starting a universe to prove pressure, it was unlikely humanity would not either “solve the puzzle” or end with some humans forever in hell over “physical pressure”. 
 
-This might unfold over thousands, even tens of thousands of years. It could be figured out on earth (on the ground), above in the clouds, or even on another planet. It could unfortunatuely end with some humans selling out others. At some point, ultimately, we needed to help the multiverse understand what it was “consciously like to cause pressure here and create pressure”. 
+This might unfold over thousands, even tens of thousands of years. It could be figured out on earth (on the ground), above in the clouds, or even on another planet. It could unfortunately end with some humans selling out others. At some point, ultimately, we needed to help the multiverse understand what it was “consciously like to cause pressure here and create pressure”. 
 
 Red/blue/gold Atlantis endured Hades, until the star decided to explode and replant. That was a similar situation, where the argument by the aliens is the red/blue/gold people through music/romance/war created too much pressure and represented a bad example to the rest of the multiverse.
 
