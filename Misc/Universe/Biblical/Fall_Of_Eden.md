@@ -6,7 +6,7 @@ For humans, this unfortunately is only due to Hell possiblities. And is actually
 
 It is by a universe of ancient aliens, who were unhappy with our goddess for not being happy with the state of the multiverse and putting so much “pressure” on everyone. As a result, they would use ancient intelligence to have all humans end up in Hell, to make a statement. Humans would put be in a Hell like Hades by the end of time, so that others would not start universes like this one.
 
-The main bet they put was on “sexual sin”, because of how much it relates to enjoying high pressure. So they were still trying to make a case, for the last millions of years, that we should have immortal bodies, all of individually as human animals, after The Fall of Eden, to make a statement to never start a universe like this one. It is putting too much pressure on everyone.
+The main bet they put was on “sexual sin”, because of how much it relates to enjoying high pressure. So they were still trying to make a case, for the last tens of thousands of years, that we should have immortal bodies, all of individually as human animals, after The Fall of Eden, to make a statement to never start a universe like this one. It is putting too much pressure on everyone.
 
 So this geometrically has quantum gravity pulling us DOWN. And is integrated into our universe as dark matter, affecting the rotations of the planets and formation of galaxies, influencing how we fall asleep each night.
 
