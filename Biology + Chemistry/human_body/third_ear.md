@@ -10,7 +10,7 @@ So do all other planets in our universe. Some planets like Jupiter use multiple 
 
 ## Three Ears
 
-Our two ears are constantly listening for "new" ideas. We use them to primarily to hear social information, big and small.
+Our two ears are constantly listening for "new" ideas. We use them to primarily hear social information, big and small.
 
 Our belly button is a third ear constantly listening to either a) the stomach, b) the skull, c) the sun. It depends on what we designate as the "moon". We get to designate 1 "moon" like the earth, via the third ear.
 
