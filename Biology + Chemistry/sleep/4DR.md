@@ -18,7 +18,7 @@ For humans the differences between “alpha” and “beta” are incredibly com
 
 ...
 
-Waking up these conflicts will help the star undersand what is really happening. The current disconnect is one reason it’s difficult for people and the sun (god) to communicate.
+Waking up these conflicts will help the star understand what is really happening. The current disconnect is one reason it’s difficult for people and the sun (god) to communicate.
 
 When the sun gets a good enough understanding of “eye contact”, this intelligence will be synthesized into a better cosmic understanding of human social intelligence. As a result, all of our 4DRs will decrease and we will move higher and higher, until we are about at the same level before The Fall of Eden. That is the level of dreams currently.
 
@@ -44,10 +44,10 @@ Many of your brain's choices are pruned by age 5. Eye contact choices are an exa
 
 A distinction observed is some turn the hypothalamus into a "game", while others turn it more into a "movie". 
 
-In the first case, people like using the "game" they created with walking. It means something of value (what happeend before birth and up to age 5).
+In the first case, people like using the "game" they created with walking. It means something of value (what happened before birth and up to age 5).
 
 In the latter case, the "game" used to walk is not worth creating additional eye pressure. It's a more modern approach to see life as a "movie" and give up on the "1-thing" you most wanted to do. 
 
 ...
 
-A secret of joy for everyone is to understandd the "1-thing" that drove you to walk. When you really let go of it, the hypothalamus will decrease your 4DR and your vision will have more of a glow, like a movie.
+A secret of joy for everyone is to understand the "1-thing" that drove you to walk. When you really let go of it, the hypothalamus will decrease your 4DR and your vision will have more of a glow, like a movie.
