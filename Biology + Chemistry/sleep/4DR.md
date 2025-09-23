@@ -26,7 +26,7 @@ We then will live in that level in the clouds, resolving further conflicts in a 
 
 ## 4DR - Hypothalamus
 
-The hypothalamus in the brain best represents the decisions of *both* eyes. This is because it creates the feeling of the being the fire of the sun. Fire, for example to control rotation, coalesces multiple seeing choices.
+The hypothalamus in the brain best represents the decisions of *both* eyes. This is because it creates the feeling of being the fire of the sun. Fire, for example to control rotation, coalesces multiple seeing choices.
 
 The hypothalamus most gets in sync when we learn to walk. Based on your focus in this life and past lives (including animal lives) you build up an argument about where you are in the 4D social hierarchy of humans. 
 
