@@ -46,4 +46,4 @@ For the original goddess, it's believed this is her second universe, and the fir
 
 *Whenever you see circles, you know you are in a simulation, a branch of time*
 
-Understanding how the cirlces are created (the underlying shapes) helps you understand how you got there.
+Understanding how the circles are created (the underlying shapes) helps you understand how you got there.
