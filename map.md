@@ -2,7 +2,7 @@
 
 The original goddess (the 3 in π) is a triangle, and the full universe is a circle around this triangle.
 
-The circle is quantum, meaning it is potential. not yet existing.
+The circle is quantum, meaning it is potential, not yet existing.
 
 When the diameter (2 sides) of the circle wake up because of focusing on specific potential updates, this vision turns the circle into a mock box (mock reality), or 3.14.
 
