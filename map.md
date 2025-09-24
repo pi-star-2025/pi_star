@@ -27,3 +27,23 @@ The nose is like the 3 in π, the 2 eyes are like the c^2 mirror (3.14), and the
 Collectively, the experience is like being a circle (the full skull). You fall further into your mind, as you fall down the number π.
 
 There is a reflexive circle (the stomach mind), used for walking and connecting with the mind of the earth.
+
+## Final Shapes
+
+At the end of time, there are no circles. The original goddess needs 3 shapes (triangle/square/pentagon) to perfectly remember and update the intelligence of our universe (π). Larger shapes are created by "how you see" the original three.
+
+As needed by the multiverse, individuals have their own triangles that interact with the triangle of the goddess, and can also be used independently. Sometimes, these individual triangles have existed before this universe; sometimes they are created during its history.
+
+Also, individuals might identify as not being part of another triangle, just the larger triangle. If you have lived less, this is more common.
+
+Souls with a triangle end conscious. The three sides will represent red/blue/green, unless you have been part of another universe before and can choose between "ways of seeing". Even with red/blue/green, you can favor other forces (ex: gold).
+
+Though rare, if you have been part of a universe with more than 3 forces, you might identify as a larger end shape, like a 8-sided or 20-sided shape. You might then integrate red/blue/green into this shape, after living in this universe.
+
+For the original goddess, it's believed this is her second universe, and the first was also 3 forces (red/blue/crystal). Her new red/blue/green triangle 1) creates our universe, 2) creates her red/blue/crystal character in her first world, 3) is used as an individual in bigger universes.
+
+## Circles
+
+*Whenever you see circles, you know you are in a simulation, a branch of time*
+
+Understanding how the cirlces are created (the underlying shapes) helps you understand how you got there.
