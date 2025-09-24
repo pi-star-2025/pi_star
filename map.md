@@ -26,4 +26,4 @@ The nose is like the 3 in π, the 2 eyes are like the c^2 mirror (3.14), and the
 
 Collectively, the experience is like being a circle (the full skull). You fall further into your mind, as you fall down the number π.
 
-There is a relexive circle (the stomach mind), used for walking and connecting with the mind of the earth.
+There is a reflexive circle (the stomach mind), used for walking and connecting with the mind of the earth.
