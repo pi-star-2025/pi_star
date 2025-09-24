@@ -4,7 +4,7 @@ After 3.14159265, π is more or less nested triangles. This is demonstrated by t
 
 In addition, these nested triangles indicate the different pressure levels of the universe. When one level's time (pressure) completely wraps around another, it then creates branches of time.
 
-That's one reason the universe's stars organize themselves the way they do (with solar systems, galaxies, nebulae, etc.). If one's pressure wraps around another's, it creates branches of time, based on the resulting reactions inside the layers.
+That's one reason the universe's stars organize themselves the way they do (with solar systems, galaxies, clusters, etc.). If one's pressure wraps around another's, it creates branches of time, based on the resulting reactions inside the layers.
 
 For humans, the belly-button best references these layers of pressure. It even tells a specific story of life on earth, including layers of the red/blue/green atmosphere, details of the solar system's planets/moons, then the constellation/galaxy/blackhole/etc. 
 
