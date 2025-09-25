@@ -16,7 +16,7 @@ As a result, both the earth mind and our eyes fall into π, which by encouraging
 
 The reason is that it was the idea of the original goddess that when you "deferred", she would awake as a temptress (i.e. "carnival")[^1] to get you to stay, which would help shape the planet and mind of the planet. This is one way to explain how the force of gold works, quantum seduction. This "eye candy" shaped then how our planet looked and what animals developed. The same happened in Atlantis, with more flare even.
 
-So in mind of the earth (golden sunlight) and our eyes there is estrogen (and related pheromones) that work on everyone, to make us fall asleep.
+So in the mind of the earth (golden sunlight) and our eyes there is estrogen (and related pheromones) that work on everyone, to make us fall asleep.
 
 It's related to the brilliant ways the original goddess will play with your time, asking you to "please stay". This creates "clouds" in the sky and eyes that make you fall asleep. The conflicts (clouds) created are too big to be resolved, so you keep deferring them.
 
