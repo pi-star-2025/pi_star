@@ -23,3 +23,20 @@ Human spines act as a tower, for conflicts to be figured out about all earth's a
 The hypothalamus is a mini sun. Like the sun in our solar system, it uses underground earth conflicts to power it's consciousness. 
 
 In addition to horsepower, the hypothlamus also understands the math of your life story and how this math connects to other suns, and the larger sun.
+
+## Ice
+
+From our perspective the mind of the universe is highly unconscious. The reason is bc it is so opinionated, mathematically, that it freezes and manages quantum conflicts.
+
+The red mind of stars is mostly hot fusion, or drilling in with perfect circles. So smaller and smaller circles inside each other, drilling in. This goes perfectly down π, like a perfectly *circular* circle. As a result of such straight thinking, the minds of stars freeze and watch reality from above.
+
+Trees are similar. The green mind of trees is mostly cold fusion, or drilling up with perfect circles. So Nitrogen thinking in larger and larger circles, inside each other, going straight up and creating hard wood. The hard wood is similar to frozen sunlight (the 3.14 blue box), which is so straight in thinking it is "above reality". As the mind of the stars is really more the "blue box", the mind of the trees is more the atmosphere.
+
+When you think in perfect circles (hot fusion or cold fusion), you become *unconscious*. The unconscious *simulates* reality, guiding it in certain directions.
+
+Our unconscious is created by the hypothalamus. It uses very strong opinions about how to use the 2 eyes and 2 ears, to lock in your unconscious by 5-7. It's by the time you can stably walk. When your walking has locked into place, it 
+
+
+
+
+
