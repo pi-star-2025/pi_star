@@ -38,9 +38,6 @@ Our unconscious is created by the hypothalamus. It uses very strong opinions abo
 
 The hypothalamus, like the star mind, will understand which ice in the world most describes the π snapshots created by the 2 eyes and 2 ears. This is mathematically the most efficient method, and the star/hypothalamus could adapt as needed, for better or worse.
 
-The ice, in the context of other red/blue/green data on earth, best captures the powerful social data of 2 eyes/2 ears. Also ice most resembles 8-5-3 deferred time to the human mind.
+The ice, in the context of other red/blue/green data on earth, best captures the powerful social data of 2 eyes/2 ears. Also, ice most resembles 8-5-3 deferred time to the human mind.
 
-
-
-
-
+We have an unconscious "self" created by 5-7. And the feeling of being it is either the feeling of being a mirror ball of ice around reality. Or it's not awake, a map of the nervous system, inside the body. The coldest/hottest.
