@@ -22,4 +22,4 @@ It's related to the brilliant ways the original goddess will play with your time
 
 On earth, since ~Year 0, the original goddess (triangle) has been trying to wake up the truth of sleep. It is related to "eye candy" to encourage deferring time. This was embedded into the start of the universe (π) to help build a red/blue/gold "way of seeing" or one that helps understand gold. This "quantum carnival" is no longer needed, we knew by Year 0, and we need to merge with the clouds.
 
-[^1] Specifically, the idea is a "circus". Pressure around the multiverse is nested circles. A court/stadium is a more natural analogy, whereas the idea of seeing it as "circus" is a choice of this particular blackhole/god
+[^1]: Specifically, the idea is a "circus". Pressure around the multiverse is nested circles. A court/stadium is a more natural analogy, whereas the idea of seeing it as "circus" is a choice of this particular blackhole/god
