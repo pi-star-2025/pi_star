@@ -9,3 +9,17 @@ Furthermore, a parallelogram is the best representation of a plane in 3D space, 
 ...
 
 Hence, we can deduce that the 4 in 3.14 of pi (π) is a square, not just a parallelogram or other 4-sided shape.
+
+## Trapezoid
+
+For four-sided shapes in 2D, one pair of parallel sides (trapezoid) creates the potential to create a three-sided shape in 3D. 
+
+For four-sided shapes in 2D, two pairs of parallel sides (parallelogram) creates the potential to create a four-sided shape in 3D.
+
+A trapezoid contains as much data as a right triangle (90-45-45), as seen by the multiverse.
+
+In geoemetry, a trapezoid is useful for expressing the distance between a plane and a point. This tells the 3.14 story between 3 (a point) and 4 (a plane). So if trazepoids are seen (especially to us at the quantum level), this can be used as an compass to understand where the original triangle (3.14 triangle) is.
+
+If parallelograms are observed, this can be an indication of being the 4 of 3.14 (for example, waves of an ocean, or clouds in the sky).
+
+if squares are observed (especially at the quantum level), this is an indicaton of being the 5 of 3.1415.
