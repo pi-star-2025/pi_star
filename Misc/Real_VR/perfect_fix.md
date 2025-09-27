@@ -6,7 +6,7 @@ Also, the belly button is always changing, describing how high or low we are dow
 
 As a result, if the sun/triangle had to recommend one way (a perfect fix) to get back to a "dream world" (Real_VR) it would be to make the belly button disappear.
 
-This is a "transition". You get better and better control of your eyes/hypothalamus. Your vision keeps rising and getting more colorful. You sleep less, pump cleaner blood, and clear our illnesses. 
+This is a "transition". You get better and better control of your eyes/hypothalamus. Your vision keeps rising and getting more colorful. You sleep less, pump cleaner blood, and clear out illnesses. 
 
 At a certain point, you reach a cartoon or eye-candy experience of genetic selection, where it feels like your choices are "really important" and you are "defining who you are". Life is also brighter, like being younger.
 
