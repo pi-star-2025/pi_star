@@ -1,6 +1,6 @@
 ## Perfect Fix
 
-The belly-button is a π knot, in particular explaining the fall from the clouds to the earth. Angels in the clouds (before Year 0 when there was an angle kingdom) did not have belly-buttons. They only gave birth in magical ways, which made the belly-button extraneous. As a result, they also really didn't have a "third eye" which mirrors this fall in the skull (between the eyes).
+The belly-button is a π knot, in particular explaining the fall from the clouds to the earth. Angels in the clouds (before Year 0 when there was an angel kingdom) did not have belly-buttons. They only gave birth in magical ways, which made the belly-button extraneous. As a result, they also really didn't have a "third eye" which mirrors this fall in the skull (between the eyes).
 
 Also, the belly button is always changing, describing how high or low we are down the number π. So it shrinks and reforms, becoming simpler then more complicated. It happens every tick of time (at c) and we don't notice.
 
