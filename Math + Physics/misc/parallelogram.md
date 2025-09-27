@@ -22,4 +22,4 @@ In geometry, a trapezoid is useful for expressing the distance between a plane a
 
 If parallelograms are observed, this can be an indication of being the 4 of 3.14 (for example, waves of an ocean, or clouds in the sky).
 
-if squares are observed (especially at the quantum level), this is an indication of being the 5 of 3.1415.
+if squares are observed (especially at the quantum level), this is an indication of creating potential for the 5 of 3.1415.
