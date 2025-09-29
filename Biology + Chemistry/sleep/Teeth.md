@@ -12,8 +12,10 @@ The size of our teeth is said to be high for a 3-force universe, pretty high. Bu
 
 ## Clouds
 
-Clouds in our eyes and the skies store larger conflicts regarding teeth. This is based on actions of people, gods, and societies throughout time, It's related to conflicts about teeth which are not decided yet.
+Clouds in our eyes and the skies store larger conflicts regarding teeth. This is based on actions of people, gods, and societies throughout time.
 
-In particular, the conflicts we are most associated with, including from past lives, is what actually puts us to sleep each night. So these are potential multiverse "court cases", which everyone has. Because of anything where you have "drilled in" to life here on earth, and it has created conflicts with others alive. This clearly happens to everyone, including some animals.
+In particular, the conflicts we are individually associated with, including from past lives, put us to sleep each night. So these are potential multiverse "court cases", which everyone accumulates. They are from moments where we have "drilled in" very hard to life on earth, and at night these moments (unconsciously) are drilling back in our heads.
 
-Being honest about all multiverse court cases for people/gods help accelerate to the end of time and sleeping.
+This clearly happens to everyone, including animals.
+
+Being honest about all multiverse court cases for people/gods help accelerate to the end of time and the end of sleeping.
