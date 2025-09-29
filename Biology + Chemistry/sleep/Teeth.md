@@ -4,7 +4,7 @@ All living circles/triangles in the multiverse need to potentially account for t
 
 This means purposely drilling in back and forth, like physical teeth/bones/roots, which mathematically gives all life fun/pleasure in the multiverse, but can be at the expense of other life. So until the multiverse understands what is going on, these "opposite reactions" of any kind of teeth behavior are associated with your soul/body.
 
-For example, eating, drinking, urination, defecation, copulation use "teeth". Thinking/vision/hearing/smelling/speaking is elegant enough where it does not.
+For example, eating, drinking, urination, defecation, copulation use "teeth". Thinking/vision/hearing/smelling/speaking are elegant enough where they do not.
 
 The opposite reactions of these teeth-driven behavior are recycled for choking, coughing, sneezing, vomiting, which have biological rhythms/benefits. So we are technically "on trial" for these behaviors, in ways our universe doesn't even know yet how to account for. But in the mean time, we use these opposite reactions practically.
 
