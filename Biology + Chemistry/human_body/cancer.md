@@ -17,3 +17,11 @@ It's possible that the single biggest difference of COVID-19 versus other simila
 The molecular structure was modified to increase the "seeing" choices by the carbon elements, which increases the chance of cancer, by integrating more with the sun's π.
 
 In terms of what caused this modification, there is "natural selection". In addition, in late 2019, The Banana Man (an evil ancient alien) is rumored to have lost his Two Towers Heaven/Hell, so he bluntly ran trillions of simulations of time to try to re-create it. By running trillions of simulations, it will elucidate "shines" (paths of value) to the multiverse. As a result, time is more likely to fall down these "shining paths", which is a potential factor in early 2020.
+
+## Recurrence
+
+Deferred seeing decisions by cancers/viruses/diseases get stored as carbons deep in the heart. This can cause effects on the nervous system and mind, which are hard to notice.
+
+It is hard to access these deep carbons. Doing so feels like a big headache, a forcefield in the eye area. This comes from carbon that highly prefers the darkness, making the light painful. When you access these carbons in the heart, it would seem as though you want to close your eyes in pain.
+
+These seeing decisions are best accessed in third eye.
