@@ -4,7 +4,7 @@ In regards to life, the largest life is the original triangle.
 
 Then the stars with c^3 power, derived from 3.1415. This can be measured by either the length of wavelengths (c^2) or the length of carbon chains (fire, c^3 of the star).
 
-Why carbon? Bc due to pressure, the force of 3 (the triangle and our sun) choose carbon as the element that most described it. This is based on the number of seeing decisions made by elements that resemble quantum triangles.
+Why carbon? Bc due to pressure, the force of 3 (the triangle and our sun) chose carbon as the element that most described it. This is based on the number of seeing decisions made by elements that resemble quantum triangles.
 
 This is most apparent in plant life, which amply use carbon as it's primary source of "breath". Plant life is much much happier than human life, but is rather asleep.
 
