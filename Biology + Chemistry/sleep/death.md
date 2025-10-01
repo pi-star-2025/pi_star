@@ -8,7 +8,7 @@ Why carbon? Bc due to pressure, the force of 3 (the triangle and our sun) chose 
 
 This is most apparent in plant life, which amply use carbon as it's primary source of "breath". Plant life is much much happier than human life, but is rather asleep.
 
-Life below the atmosphere then uses oxygen as it's primary source of "breath" when alive. The carbon in you is freewill, so it's "the real you" in a way. The highest consciousness. This is measured directly by the length of carbon chains. For example, the human spine lines up carbons to create power and consciousness. If you have thoughts that go all the way up, you are much happier. In addition, the carbon-rich heart is highly powerful. Mathemtically, actually *the hypothlamus* in human has the mathematically longest carbon-chains (wavelengths).
+Life below the atmosphere then uses oxygen as it's primary source of "breath" when alive. The carbon in you is freewill, so it's "the real you" in a way. The highest consciousness. This is measured directly by the length of carbon chains. For example, the human spine lines up carbons to create power and consciousness. If you have thoughts that go all the way up, you are much happier. In addition, the carbon-rich heart is highly powerful. Mathemtically, actually *the hypothlamus* in humans has the longest carbon-chains (wavelengths).
 
 Understanding this you could transition eventually to having such long carbon-chains (long wavelengths), that you die awake, moving one level up to the plant level.
 
