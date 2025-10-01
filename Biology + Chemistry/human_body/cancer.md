@@ -12,7 +12,7 @@ Also, other random growths and illnesses in the body can be traced to getting in
 
 ## Corona Virus
 
-It's possible that the single biggest difference of COVID-19 versus other similar viruses is that it's RNA had the ability to see, because it resmembled a cancer enough. It fit into the clockwork of the heart, more than other similar viruses.
+It's possible that the single biggest difference of COVID-19 versus other similar viruses is that its RNA had the ability to see, because it resmembled a cancer enough. It fit into the clockwork of the heart, more than other similar viruses.
 
 The molecular structure was modified to increase the "seeing" choices by the carbon elements, which increases the chance of cancer, by integrating more with the sun's π.
 
