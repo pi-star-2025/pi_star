@@ -8,7 +8,7 @@ When one side of the c^2 rhythm drops below the body (out of the body), this is 
 
 When one side of the c^2 rhythm rises above the body (out of the body), this is excitement.
 
-Whereas anxiety is nerve-wracking to the brain/stomach, excitement also is calming. Still, both states are derived from stimulation of the heart, when breaks it out of rhythm. 
+Whereas anxiety is nerve-wracking to the brain/stomach, excitement also is calming. Still, both states are derived from stimulation of the heart, when it breaks out of rhythm. 
 
 ## Amusement Park World
 
