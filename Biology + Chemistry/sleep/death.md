@@ -16,6 +16,6 @@ Technically, if this fully happened, you would be "dead".
 
 This would first lead to magical effects, perhaps high imagination. Then if you continued, you would enter the physical world of dreams, which is the plant mind. There, you can run simulations like VR, view memories, and use your "time" from life to meet people and ask questions, before becoming final.
 
-It's about understanding, in some way, because of the triangle, the real "you" is the red. The longest carbon chains.When you line them up purely vertically, trying to be as tall as a cloud, you can get the breath of a tree. 
+It's about understanding, in some way, because of the triangle, the real "you" is the red. The longest carbon chains. When you line them up purely vertically, trying to be as tall as a cloud, you can get the breath of a tree. 
 
 It's mathematically measured by how many carbons can be lined up in a tower up π.
