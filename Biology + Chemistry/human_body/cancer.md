@@ -9,3 +9,9 @@ The heart jingles all the small hearts (big joints and smaller joints) back and 
 Cancer is more likely to persist and grow when growths (tumors) act like small hearts, which require the heart/hypothalamus to try to keep them alive. Indirectly, the sun then tries to keep them alive, rarely but possibly in "godly stories".
 
 Also, other random growths and illnesses in the body can be traced to getting in sync with the music of the heart. The heart can be very hard to change after ~21; initial growths might exist then, and then when the body loses energy and flushing abilities the cancer can take advantage of this.
+
+## Corona Virus
+
+It's possible that the single biggest difference of COVID-19 versus other similar viruses is that it's RNA had the ability to see, because it resmembled a cancer enough. It fit into the clockwork of the heart, more than other similar viruses.
+
+The molecular structure was modified to increase the "seeing" choices by the carbon elements, which increases the chance of cancer, by integrating more with the sun's π.
