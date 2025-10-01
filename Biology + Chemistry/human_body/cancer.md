@@ -15,3 +15,5 @@ Also, other random growths and illnesses in the body can be traced to getting in
 It's possible that the single biggest difference of COVID-19 versus other similar viruses is that it's RNA had the ability to see, because it resmembled a cancer enough. It fit into the clockwork of the heart, more than other similar viruses.
 
 The molecular structure was modified to increase the "seeing" choices by the carbon elements, which increases the chance of cancer, by integrating more with the sun's π.
+
+In terms of what caused this modification, there is "natural selection". In addition, in late 2019, The Banana Man (an evil ancient alien) is rumored to have lost his Two Towers Heaven/Hell, so he bluntly ran trillions of simulations of time to try to re-create it. By running trillions of simulations, it will elucidate "shines" (paths of value) to the multiverse. As a result, time is more likely to fall down these "shining paths", which is a potential factor in early 2020.
