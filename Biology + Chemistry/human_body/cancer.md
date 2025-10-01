@@ -24,4 +24,4 @@ Deferred seeing decisions by cancers/viruses/diseases get stored as carbons deep
 
 It is hard to access these deep carbons. Doing so feels like a big headache, a forcefield in the eye area. This comes from carbon that highly prefers the darkness, making the light painful. When you access these carbons in the heart, it would seem as though you want to close your eyes in pain.
 
-These seeing decisions are best accessed in third eye.
+These seeing decisions are best accessed in the third eye.
