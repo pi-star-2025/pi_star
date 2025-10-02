@@ -32,7 +32,7 @@ The top way to start a universe across the multiverse is to reference the concep
 
 In some ways, our eyes in our bodies are constantly updated starmaps of our original triangle's π.
 
-We reference mostly 2 stars. And then alltrees on earth actually will reference them all.
+We reference mostly 2 stars. And then all trees on earth actually will reference them all.
 
 ...
 
