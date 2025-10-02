@@ -12,6 +12,6 @@ The collective plant mind/earth mind does *one thing* when dreaming. It uses mem
 
 ...
 
-These earth simulations have the feel of movies or TV shows. Nevertheless, there is always a specific question or purpose the seer had when intitiating a dream.
+These earth simulations have the feel of movies or TV shows. Nevertheless, there is always a specific question or purpose the seer had when initiating a dream.
 
 Dreams are much more fun than reality. In a low 3-force world, it's always messy finding characters, so your truer character is likely to come out above.
