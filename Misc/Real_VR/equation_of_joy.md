@@ -12,4 +12,4 @@ Freewill and consciousness is related to SPARK, so a fuller equation of joy is j
 
 This maximizes freewill/consciousness, while minimizing the perceived speed of time.
 
-The more of π you utilize, the less red you use, the more value to the universe (joy).
+The more of π you utilize and the less red you use, the more value to the universe (joy).
