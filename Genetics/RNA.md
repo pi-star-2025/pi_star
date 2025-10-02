@@ -6,6 +6,6 @@ Hence, life with DNA is more complex, having evolved from RNA-based life.
 
 However, a virus with RNA could pass along a highly linear message, which behaves more mechanically.
 
-RNA behaves like quantum strings, whereas as DNA behaves like quantum waves.
+RNA behaves like quantum strings, whereas DNA behaves like quantum waves.
 
 RNA is a smart string; DNA is a smart wave.
