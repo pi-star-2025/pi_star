@@ -11,3 +11,7 @@ And interestingly, the heads of mushrooms are like the umbrella. In fact, the li
 At a higher level, the mind of the triangle is the umbrella as a wavelength.
 
 In our universe, we know then that perfect focus would be balancing an umbrella (like a rainbow) above the eyes.
+
+...
+
+Thinking like an umbrella is a how a triangle becomes a circle.
