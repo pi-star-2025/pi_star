@@ -12,13 +12,13 @@ The hypothalamus is like a party ball of strings, thinking like a single sun.
 
 These strings are like intelligent light, which never run out of energy. If your eyes run out of energy, the hypothalamus will take over.
 
-Whereas our sun and related chemicals (adrenaline, pheremones) wake us up, other stars (representing counter opinions) put us to sleep. 
+Whereas our sun and related chemicals (adrenaline, pheromones) wake us up, other stars (representing counter opinions) put us to sleep. 
 
-Ancient aliens for/against this universe can communciate by falling in as life, especially human life. They then can communicate with "2 stars". 
+Ancient aliens for/against this universe can communicate by falling in as life, especially human life. They then can communicate with "2 stars". 
 
 Or, in this universe, super ancient aliens make the case they cannot communicate with the kind of life here and prefer to use 1 star. This includes dark-matter viruses, related to bets about the human race, which put us to sleep.
 
-This is exactly what some of these ancient aliens want. They want a straight line for us into the darkness, which is communciated with the hypothalamus 1-star strings.
+This is exactly what some of these ancient aliens want. They want a straight line for us into the darkness, which is communicated with the hypothalamus 1-star strings.
 
 One example is an ancient alien called The Joker.
 
