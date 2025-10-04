@@ -6,7 +6,7 @@ The reason is that every time you see a tick of time (at c), the color itself is
 
 The colors are created by how the rest of the multiverse (not these original universes of π) see the original universes of π.
 
-First, are the "flecks" of these original unvierses, which are very fun to look at.
+First, are the "flecks" of these original universes, which are very fun to look at.
 
 These are like diamond mirrored flashes of light, and then it's decided what kind of light ('shine') they are.
 
