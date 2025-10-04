@@ -2,7 +2,7 @@
 
 Sexuality can be traced to the blackholes of air that blow into your ears from the stars/clouds.
 
-This air correponds to lower genetics, which can be influenced more with freewill early in life. Genetics you see in the eyes/hair are often determined so early in life you consciously never had any say.
+This air corresponds to lower genetics, which can be influenced more with freewill early in life. Genetics you see in the eyes/hair are often determined so early in life you consciously never had any say.
 
 These genetics map directly to the foot lines, left ear to left foot and right ear to right foot. So they are possible to minorly change, but are very hard to tangibly change. 
 
