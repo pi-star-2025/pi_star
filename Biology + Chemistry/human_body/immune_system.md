@@ -9,3 +9,5 @@ When you get a fever, your blood gets hotter and your body then explicitly chann
 These seeing decisions are very mathematical, like RNA. For example, the top technique is to mime any 1-thing (ex: a string, RNA), so that it has a pair. Pairs always know how to become physical in the body, and can then be flushed out.
 
 For worse illnesses, this doesn't work. And the heart/immune system will proceed with trying to figure out alternative fixes.
+
+A classic response is to send RNA messages from the heart to find and attack the illness, creating a search team. If you are willing to be more aggressive than "a human" in how you see the world, having the personality of an angry alarm (a god), then you can inject "seeing decisions" into the body which can reconcile more serious illnesses.
