@@ -12,7 +12,7 @@ Through attraction up or down, you can trace how genetics map from the eyes thro
 
 ...
 
-To the multiverse, the genetics (seeing choices) of the original godddess (π triangle) are cartoonish. They come out in the back-and-forth interplay with the other stars, via ATCG.
+To the multiverse, the genetics (seeing choices) of the original goddess (π triangle) are cartoonish. They come out in the back-and-forth interplay with the other stars, via ATCG.
 
 All other stars have a classical style that women (and the original goddess) are attracted to. These seeing choices are more practical and historically great.
 
