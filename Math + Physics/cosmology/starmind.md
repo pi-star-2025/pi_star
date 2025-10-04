@@ -8,6 +8,6 @@ In people this is represented by DNA braids in the deepest parts of the eyes. Fo
 
 Whereas DNA has a 3D direction, RNA does not, existing always 360 degrees around the body, like the star exists 360 degrees around the solar system.  
 
-So you could say the heart/hypothalamus exist more as “imagination”, like the starmind, whereas the eyes existing with a 90 degree direction, exist more in “reality”.
+So you could say the heart/hypothalamus exist more as “imagination”, like the starmind, whereas the eyes with a 90 degree direction, exist more in “reality”.
 
 So the starmind thinks like super smart, super powerful imagination.
