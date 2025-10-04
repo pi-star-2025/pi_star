@@ -11,3 +11,5 @@ These seeing decisions are very mathematical, like RNA. For example, the top tec
 For worse illnesses, this doesn't work. And the heart/immune system will proceed with trying to figure out alternative fixes.
 
 A classic response is to send RNA messages from the heart to find and attack the illness, creating a search team. If you are willing to be more aggressive than "a human" in how you see the world, having the personality of an angry alarm (a god), then you can inject "seeing decisions" into the body which can reconcile more serious illnesses.
+
+In addition, a flush response can be intiated by the immune system. This is something only the star has permission to do, and can happen when you have a fever. It's when you just release RNA from stores in the body, bc some initial techniques have not worked. You need a high enough fever to release RNA stores from the heart itself.
