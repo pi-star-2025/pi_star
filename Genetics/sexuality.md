@@ -11,3 +11,9 @@ Also this can be where any secrets of your genes/life are stored - in the "way y
 ...
 
 If you know this, it's possible to change your genetics, by findings ways to blow back (kiss) the air in your ears as much as possible. You also need to free your mind of "secrets" and other highly-knotted thoughts.
+
+## 4D Blackhole
+
+The atmosphere creates a "blackhole" for starlight to fall into hearing/being earth. Before the atmosphere, starlight is the sun mind (3.14), and inside the atmosphere, starlight is the earth mind (3.1415).
+
+Similarily, the ear genes create a "blackhole" for starlight to fall into hearing/being animals and people. With enough estrogen you don't hear this buzz of the genetic clouds and you can exist more in this ambiguous space.
