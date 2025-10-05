@@ -8,4 +8,4 @@ They don't act asleep, jumping high and twitching fast, but in some way they are
 
 When you are asleep, the throat has more muscular actions because you are not speaking. In humans this leads to snoring; in frogs this leads to tongue strength.
 
-Since frogs don't use their eyes for power, their hearing/speaking is surprisingly alert.
+Frogs use their big eyes for both hearing/seeing.
