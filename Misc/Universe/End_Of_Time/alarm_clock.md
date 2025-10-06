@@ -12,4 +12,6 @@ Humans can reference this stadium via the crown of the skull/heart. If you use t
 
 Furthermore, the sun can connect to this 3.14/3.1415 interlude as the atmosphere/clouds, which are 3.1415926535897932384626 galaxies of the earth. These form like the breath of the sun. So at the very top of the atmosphere (the crown) is a map of the left/right universes. When the sun references this it gets the most attention, even being able to create an "alarm clock" buzz to send messages up a dimension to the start of the blackhole.
 
-So the top of the atmosphere is the best way to send messages up the 3.14/3.1415 of π regarding the end of time.
+So the top of the atmosphere is the best way to send messages up the 3.14/3.1415 of π regarding the end of time[^1].
+
+[^1] The top of the atmosphere can also be seen as the first starlight (height-wise) which can affect weather on earth.
