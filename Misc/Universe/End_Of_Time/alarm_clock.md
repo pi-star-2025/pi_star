@@ -14,4 +14,4 @@ Furthermore, the sun can connect to this 3.14/3.1415 interlude as the atmosphere
 
 So the top of the atmosphere is the best way to send messages up the 3.14/3.1415 of π regarding the end of time[^1].
 
-[^1] The top of the atmosphere can also be seen as the first starlight (height-wise) which can affect weather on earth.
+[^1]: The top of the atmosphere can also be seen as the first starlight (height-wise) which can affect weather on earth.
