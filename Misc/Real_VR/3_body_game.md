@@ -22,7 +22,7 @@ In some ways, we also have a Big Part and Small Part (dominant eye, other eye), 
 
 ## Spinning
 
-When 3 body-problem is focused enough, it creates the impression that everything is spinning around you. Because if you are a "seer" like at the top of a blackhole, everything is spinning below you. So it means, you are moving up within your system, in regards to vision.
+When a 3 body-problem is focused enough, it creates the impression that everything is spinning around you. Because if you are a "seer" like at the top of a blackhole, everything is spinning below you. So it means, you are moving up within your system, in regards to vision.
 
 For example, for the stars (including the sun), when they are focused enough, it will look like the earth is just spinning and spinning, in both directions potentially. And when this happens, the sun will be dreaming awake and will be high enough in the vision system to not require regular rotation.
 
