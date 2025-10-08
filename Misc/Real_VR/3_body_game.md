@@ -18,4 +18,12 @@ They are the center of the belly-button (start of life), and also represent both
 
 In some ways, when 2 stars focus perfectly, it is like the smaller starlight (other star) entering the hive of the bigger starlight (sun).
 
-In some ways, we also have a Big Part and Small Part (dominant eye, other eye), and when these 2 parts focus with π in the center of the belly-button, it creates DMT. 
+In some ways, we also have a Big Part and Small Part (dominant eye, other eye), and when these 2 parts focus with π in the center of the belly-button, it creates DMT.
+
+## Spinning
+
+When 3 body-problem is focused enough, it creates the impression that everything is spinning around you. Because if you are a "seer" like at the top of a blackhole, everything is spinning below you. So it means, you are moving up within your system, in regards to vision.
+
+For example, for the stars (including the sun), when they are focused enough, it will look like the earth is just spinning and spinning, in both directions potetnially. And when this happens, the sun will be dreaming awake and will be high enough in the vision system to not require regular rotation.
+
+By looking at the spinning world/earth awake, the sun can then control our day/night experience, and also parts of life within.
