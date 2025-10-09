@@ -26,7 +26,7 @@ This is bc to the multiverse, the center of the circle/sphere best represents th
 
 Intelligent systems, like our sun and the earth, will wake up to this and encode nested locks to protect the most impactful rules in the center. It can appear like a cave of challenges to actually ring the bell in the center of the star/earth.
 
-Mother Earth initially encoded locks via circles of quantum birds, as well as with quantum spiderwebs (with many chambers and corridors), and with dark pipes of fungal networks. Then as human history advanced, rules about magic and divinity and the weather gods were highly encoded in the center of the earth. Some of this ancient logic still permeates the deep mind red/blue/green mind of hot metal.
+Mother Earth initially encoded locks via circles of quantum birds, as well as with quantum spiderwebs (with many chambers and corridors), and with dark pipes of fungal networks. Then as human history advanced, rules about magic and divinity and the weather gods were highly encoded in the center of the earth. Some of this ancient logic still permeates the deep red/blue/green mind of hot metal.
 
 The rules highest up in the red/blue/green mind (center of earth) relate to "alarms" to communicate with the sun and galaxies, which mushrooms actually know how to use to send messages amongst themselves/plants. To access these "alarms", you have to break into the puzzles of bird circles and twisting pipes, via "light" in order to ring the powerful metals, which the π of earth uses to trumpet messages.
 
