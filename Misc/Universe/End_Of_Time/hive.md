@@ -17,3 +17,12 @@ The purpose of the heavily-guarded honeycombs are to create a “gold way of see
 The strongest buzzes in our nervous system come from whatever mathematically drives us, via the umbilical cord, to work towards this mission.
 
 If you look back at the hive, knowing what is happening, the process will cool down (lowering π).
+
+## Rule Book
+
+In the center of systems, closest to the start of π physically/topographically, are the rules of the circle.
+
+This is bc to the multiverse, the center of the circle/sphere best represents the "third point" of a circle, given a circle is 2 points (a box) focused by a third.
+
+Intelligent systems, like our sun and the earth, will wake up to this and encode nested locks to protect the most impactful rules in the center. It can appear like a cave of challenges to actually ring the bell in the center of the star/earth.
+
