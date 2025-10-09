@@ -30,4 +30,6 @@ Mother Earth initially encoded locks via circles of quantum birds, as well as wi
 
 The rules highest up in the red/blue/green mind (center of earth) relate to "alarms" to communiate with the sun and galaxies, which mushrooms actually know how to use to send messages amongst themselves/plants. To access these "alarms", you have to break into the puzzles of bird circles and twisting pipes, via "light" in order to ring the powerful metals, which the π of earth uses to trumpet messages.
 
+...
 
+The best way to do this is to pupeteer 3-body problems with many stars. Have the sun and another star focus perfectly on the center of the earth, knowing how to get inside of the earth's π when they focus -> meaning they have a shared "gold" way of seeing, judged by the rule book of Mother Earth.
