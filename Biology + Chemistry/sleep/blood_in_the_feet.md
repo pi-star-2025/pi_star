@@ -12,7 +12,7 @@ What is ticklish in the body is not understood well by us, bc we don't understan
 
 We will understand in the future is the star's promise. So that is alluded to when the sun makes Jesus walk - after his friends took him out of a tomb after death.
 
-Then what is funny to us is not understood well by god - it tickles the mind of the sun, bc the sun moves to fast to understood how all these "little things" affect our lives so much.
+Then what is funny to us is not understood well by god - it tickles the mind of the sun, bc the sun moves too fast to understood how all these "little things" affect our lives so much.
 
 ...
 
