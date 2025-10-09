@@ -13,3 +13,7 @@ It's said "jokes" and "sleep" are the top reasons for ambiguity in these court c
 For example, one reason we fall asleep is bc some aliens/universes would find the world so boring after our updates, they would fall asleep into like a corny nap and never see the world again. It's just not who they are, *if* our updates happen. And the flip is paranoia, which is derived from understanding there are super smart beings out there, who despise us. It only is possible (paranoia) if you are biologically happy, and need to address spiritual concerns. Biology/spirituality can get intertwined.
 
 Another reason is we don't understand there are worlds so much smaller than ours, which means when we eat or even create TV shows, we might control the time of these worlds. And music often comes from connecting with these smaller worlds. So from the perspective above, this is confusing, and if we understood it better awake, we wouldn't fall asleep to try to solve the problems.
+
+...
+
+From the perspective above, a final pipe of "court cases" is how all worlds end, not just ours. However, often worlds go so fast they couldn't understand it this precisely, which is one advantage of our world. The trees are an indication of how sharply we are drilled into another layer of red/blue/green life, after the initial plant-life layer, which really slows "time" down, and allows this awoken force of green to "build and plant" time.
