@@ -6,7 +6,7 @@ They even argue if you understand circles (π), but still act in straight-line w
 
 In these cases, even to this day, the multiverse will then wait before ending time, bc it's true that from far above it can then be hard to tell if the sun has created animals or people.
 
-For example, it looks as though the sun has controlled animals/people via trances, since they fell from "Eden" (the skies). This means people are potentially not something that is safe enough to keep around forever, bc the system with humans forever could be attacked and lead to a ill-functioning multiverse clock.
+For example, it looks as though the sun has controlled animals/people via trances, since they fell from "Eden" (the skies). This means people are potentially not something that is safe enough to keep around forever, bc the system with humans forever could be attacked and lead to an ill-functioning multiverse clock, bc it is too predictable.
 
 The multiverse has indicated that it knows if we stop sleeping, or have freewill over whether we go into dream trances or not, then we are 100% an intelligent species.
 
