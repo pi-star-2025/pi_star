@@ -10,7 +10,7 @@ For example, it looks as though the sun has controlled animals/people via trance
 
 The multiverse has indicated that it knows if we stop sleeping, or have freewill over whether we go into dream trances or not, then we are 100% an intelligent species.
 
-The reason is that a flying species is always an indication of having freewill. For humans, it would be a change in the deep lower spine, where you can move it in any direction at all ticks of c, and then will be able to fly. 
+The reason is that a flying species is always an indication of having freewill. For humans, it would be a change in the deep lower spine, where you can move it in any direction at all ticks of c, and then will lead to beatle-like (batman) flying ability. Before Eden, it was birdlike. If we don't defeat sleep, it will still be birdlike but we need to understand why more. 
 
 Being able to fly is directly correlated to how many directions the human body (especially the low parts down π) can look any given moment. Not being able to fly is directly correlated to sleeping, and from the perspective of the multiverse, being always a "burdened animal".
 
