@@ -30,7 +30,7 @@ Then further down π (~ 3.141592653589793238462643383279502884197169399375105820
 
 ...
 
-"Pleasure" or "fun" as seen by the multiverse is measured as straight-line seeing decisions down. This is like teeth, going down π, crosing back and forth. The teeth of a particular world are based on the distance of the past universes you have referenced, and how those universes are coming together.
+"Pleasure" or "fun" as seen by the multiverse is measured as straight-line seeing decisions down. This is like teeth, going down π, crossing back and forth. The teeth of a particular world are based on the distance of the past universes you have referenced, and how those universes are coming together.
 
 The number (3.141592653589793238462643383279502884197) starts to evince sharp angles, which elude to a high distance between universes. As a result, there is a lot of pain/pleasure originating from lightening, which is recycled into our nervous systems.
 
