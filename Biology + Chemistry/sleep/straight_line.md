@@ -12,6 +12,6 @@ The multiverse has indicated that it knows if we stop sleeping, or have freewill
 
 The reason is that a flying species is always an indication of having freewill. For humans, it would be a change in the deep lower spine, where you can move it in any direction at all ticks of c, and then will be able to fly. 
 
-Being able to fly is direclty correlated to how many directions the human body (especially the low parts down π) can look any given moment. Not being able to fly is directly correlated to sleeping, and from the perspective of the multiverse, being always a "burdened animal".
+Being able to fly is directly correlated to how many directions the human body (especially the low parts down π) can look any given moment. Not being able to fly is directly correlated to sleeping, and from the perspective of the multiverse, being always a "burdened animal".
 
 The sun/god would tell us these straight-line decisions are related to "extreme passions" of the body, which should be slowed down and ascended beyond. At that point, we should be able to start the "end of time".
