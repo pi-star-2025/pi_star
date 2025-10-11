@@ -5,9 +5,13 @@ As you go further and further down π, the number describes how to focus better 
 Mathematically, π will reference wider and wider "circular" shapes. First a triangle, then square, then pentagon, then magnetic field, then galaxy, etc.
 
 3
+
 3.14
+
 3.1415
+
 3.14159265
+
 ~3.1415926535897932384626
 
 The next "circle" will always reference all previous circles by the criss-crossing of the numbers. In particular, it will represent the different sides of each of the previous circles (the quantum possibilities they have created).
