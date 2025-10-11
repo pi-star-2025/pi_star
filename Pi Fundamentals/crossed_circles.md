@@ -34,4 +34,4 @@ Then further down π (~ 3.141592653589793238462643383279502884197169399375105820
 
 The number (3.141592653589793238462643383279502884197) starts to evince sharp angles, which elude to a high distance between universes. As a result, there is a lot of pain/pleasure originating from lightening, which is recycled into our nervous systems.
 
-The multiverse says then that lightening and the spirit of our universe is rather "glorious". These straight-lines are *strong* compared to other worlds, and the ambitions are vast. 
+The multiverse says then that lightening and the spirit of our universe is rather "glorious". These straight-lines are *strong* compared to other worlds, and the resulting updates can be vast.
