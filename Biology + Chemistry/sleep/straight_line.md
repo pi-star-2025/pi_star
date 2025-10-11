@@ -2,7 +2,7 @@
 
 Numerous very ancient but respected alien civilizations throughout the multiverse make the case that if you create a species of people that never ascends "straight line" decisions, you cannot expect them to be treated as intelligent beings.
 
-They even argue if you understand circles (π), but still act in straight-line ways, you truly cannot choose between waking/sleeping, and then you are still un-intelligent bc your mind does not have enough options for vision (each tick at c).
+They even argue if you understand circles (π), but still act in straight-line ways -- for example the inability to choose between waking/sleeping, then you are still un-intelligent bc your mind does not have enough options for vision (each tick at c).
 
 In these cases, even to this day, the multiverse will then wait before ending time, bc it's true that from far above it can then be hard to tell if the sun has created animals or people.
 
