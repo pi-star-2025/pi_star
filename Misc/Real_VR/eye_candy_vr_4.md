@@ -3,3 +3,9 @@
 From the perspective of the 6D mind, the sphere of the earth creates a globe of water and ice, instead of hard blue space. So the 4 of 3.14 of the original triangle is not perceived as hard blue space, but is slowed down into blue ice/water.
 
 From our perspective this ice/water is the coldest thing possible, but to the 6D/8D mind (original triangle and star light) it is like "eye candy", the most enjoyable, bc it is the slowest time. Every thing on earth can be seen very clearly, and with the powerful vision of stars/gods.
+
+The reason blue water/ice is formed from 6D space is the criss-crossing of straight-line decisions by at least 2 stars at the same time. With repetition, this turns the hard blue space into blue ice, then blue water, which potentiates the skies with rain and lightening. The criss-crossed decisions are persistent enough that a spirit of weather is created, which concurrently is how stars/gods see what's happening on earth.
+
+This means there is a "truer" higher reality where our atmosphere is like watery blue space, but if we are small enough where we can still see it as solid, which makes the earth like the rest of the universe to us. We see our bodies as "solid"; we the air and buildings as "solid"; we see mountains and trees as solid. But to the stars, we are cartoonish like water colors. We are not as straightly put together in the 4D mind, as we are in the 6D mind.
+
+From this, we can understand the best way to connect to the *truer* 6D reality is with the center of our eyes. The center of our eyes really do see our reality as cartoons or water colors, which renders imagination and helps us decipher dreams.
