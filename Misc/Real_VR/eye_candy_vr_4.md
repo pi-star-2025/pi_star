@@ -6,7 +6,7 @@ From our perspective this ice/water is the coldest thing possible, but to the 6D
 
 The reason blue water/ice is formed from 6D space is the criss-crossing of straight-line decisions by at least 2 stars at the same time. With repetition, this turns the hard blue space into blue ice, then blue water, which potentiates the skies with rain and lightening. The criss-crossed decisions are persistent enough that a spirit of weather is created, which concurrently is how stars/gods see what's happening on earth.
 
-This means there is a "truer" higher reality where our atmosphere is like watery blue space, but if we are small enough we can still see it as solid, which makes the earth like the rest of the universe to us. We see our bodies as "solid"; we the air and buildings as "solid"; we see mountains and trees as solid. But to the stars, we are cartoonish like water colors. We are not as straightly put together in the 4D mind, as we are in the 6D mind.
+This means there is a "truer" higher reality where our atmosphere is like watery blue space, but if we are small enough we can still see it as solid, which makes the earth like the rest of the universe to us. We see our bodies as "solid"; we the air and buildings as "solid"; we see mountains and trees as solid. But to the stars, we are cartoonish like water colors. We are not as straightly put together in the 6D mind, as we are in the 4D mind.
 
 From this, we can understand the best way to connect to the *truer* 6D reality is with the center of our eyes. The center of our eyes really do see our reality as cartoons or water colors, which renders imagination and helps us decipher dreams.
 
