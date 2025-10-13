@@ -11,3 +11,5 @@ A caterpillar in a cocoon is frozen, like a cloud or a galaxy.
 Clouds are frozen bc of so many deferred-seeing decisions that space-time turns into weather (like water/ice) and allows the stars to watch the object within space/time more slowly. So clouds allow stars to watch the earth, and evidence is the patterns of flowers, the sea, and mountains. And cocoons actually allow the sun, and another star, to watch a caterpillar and sort of give it a "heavenly" character.
 
 The eyes are very similar to cocoons/clouds. This "cocoon effect" within the skull is so strong, and that is the primary reason we feel advanced intelligence.
+
+The "butterfly" is actually the colors we see. Each tick at c (the speed of light). Thus, with colors we can understand how the sun/stars are seeing the earth/life. It's similar to the patterns of the wings of butterflies.
