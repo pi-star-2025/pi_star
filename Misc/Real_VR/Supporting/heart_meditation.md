@@ -20,4 +20,4 @@ Increasing the vision of the heart improves ability to fight illness (RNA), epig
 
 For example, if you have blood that focuses well enough in the belly-button, you are able to digest food better and don't experience the sensation of heartburn or anxiety the same way as other people.
 
-If you focus blood well enough in the third eye, you require less sleep, relieve ADHD/schizophrenia, and even could turn the funny bones into "unfinished wings", which feel funny because of quantum possibilities to fly. The tangible result is much better hearing in the ears/heart, at first, and the absense of a "funny feeling".
+If you focus blood well enough in the third eye, you require less sleep, relieve ADHD/schizophrenia, and even could turn the funny bones into "unfinished wings", which feel funny because of quantum possibilities to fly. The tangible result is much better hearing in the ears/heart, at first, and the absence of a "funny feeling".
