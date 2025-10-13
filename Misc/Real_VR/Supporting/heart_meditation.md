@@ -12,9 +12,9 @@ If you see life more as a game, you use the "white rabbit" of the split heart fo
 
 ## 360 Vision of Blood
 
-The goal is to have your blood be as intelligent as possible, to be able to see in any many ways as possible.
+The goal is to have your blood be as intelligent as possible (to be able to see in as many ways as possible).
 
-The ways blood moves and can move has a significant on what you do each day/night. 
+The ways blood moves and *can move* have a significant impact on what you do each day/night. 
 
 Increasing the vision of the heart improves ability to fight illness (RNA), epigenetic expression (DNA), updates unconscious behaviors (ex: PTSD, OCD), and simplifies biological processes.
 
