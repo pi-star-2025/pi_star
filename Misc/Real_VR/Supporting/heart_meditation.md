@@ -2,7 +2,7 @@
 
 For people happy enough, you could say you are in a "movie" or a "game", in life overall.
 
-One key difference between the 2 mindsets is whether the heart is constantly seeing or not. This happens when the breath of the heart is synced is up enough with the breath of the nose.
+One key difference between the 2 mindsets is whether the heart is constantly seeing or not. This happens when the breath of the heart is synced up enough with the breath of the nose.
 
 The very center of the heart breath relates to the movement of many chambers (meant to mimick 2 stars), where the nose breath represents how 2 have come together into 1.
 
