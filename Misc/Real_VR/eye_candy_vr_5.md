@@ -12,4 +12,4 @@ In your eyes are lots of ideas for colors that are unique to an individual 4D π
 
 As the colors get figured out, you become the environment ("colors") more and more.
 
-If you can exist fast enough to always be the colors at ths speed of c (light), then your conscious π is low enough to exist in Real_VR.
+If you can exist fast enough to always be the colors at the speed of c (light), then your conscious π is low enough to exist in Real_VR.
