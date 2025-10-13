@@ -13,3 +13,5 @@ Clouds are frozen bc of so many deferred-seeing decisions that space-time turns 
 The eyes are very similar to cocoons/clouds. This "cocoon effect" within the skull is so strong, and that is the primary reason we feel advanced intelligence.
 
 The "butterfly" is actually the colors we see. Each tick at c (the speed of light). Thus, with colors we can understand how the sun/stars are seeing the earth/life. It's similar to the patterns of the wings of butterflies.
+
+From the above, we can infer that our end-spirit is more or less the gravity of colors. Our self below (the caterpillar) is present, but with a much condensed π, like the center of a butterfly.
