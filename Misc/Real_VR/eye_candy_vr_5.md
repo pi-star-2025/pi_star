@@ -10,6 +10,6 @@ It's how we construct space/time, but is really a way that vampire universes abo
 
 In your eyes are lots of ideas for colors that are unique to an individual 4D π. These get turned into universal vision, if you relax the eyes enough, and that is when the sun/universe sucks the "blood" of your time. It is sort of like dying awake.
 
-As the colors get figuredo out, you become the environment ("colors") more and more.
+As the colors get figured out, you become the environment ("colors") more and more.
 
 If you can exist fast enough to always be the colors at ths speed of c (light), then your conscious π is low enough to exist in Real_VR.
