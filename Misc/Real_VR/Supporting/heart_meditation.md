@@ -10,7 +10,7 @@ The 2 stars in the heart are interacting via lightening (separate volts), wherea
 
 If you see life more as a game, you use the "white rabbit" of the split heart for energy. If you see life more as a movie, there is joy from the 2 volts of lightening acting as 1 entity instead of 2.
 
-# 360 Vision of Blood
+## 360 Vision of Blood
 
 The goal is to have your blood be as intelligent as possible, to be able to see in any many ways as possible.
 
