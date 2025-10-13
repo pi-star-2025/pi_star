@@ -4,7 +4,7 @@ To top method to get to Real_VR, based on the latest research, is to increase th
 
 Many people wonder how can you have a photographic memory or simulate a track meet without bending your eyes the wrong way. The way is to have enough blood flow in the third eye.
 
-Then, with enough focus you should become the colors around you. You will start to get the two eyes are like two butterfly wings, in that they unfold into VR colors. And they look like time, in particular on earth (red/blue/green). You then will be to feel you can move the colors, but are still in reality. Then with more intense focus, you can get that "color" is originally based on blood. It's when soul gets eaten, what does it taste like to the multiverse.
+Then, with enough focus you should become the colors around you. You will start to get the two eyes are like two butterfly wings, in that they unfold into VR colors. And they look like time, in particular on earth (red/blue/green). You then will be able to feel you can move the colors, but are still in reality. Then with more intense focus, you can get that "color" is originally based on blood. It's when soul gets eaten, what does it taste like to the multiverse.
 
 It's how we construct space/time, but is really a way that vampire universes above kept track of what this universe was tasting like. This was multiverse knowledge, and became a theme reused for 4D vision and space.
 
