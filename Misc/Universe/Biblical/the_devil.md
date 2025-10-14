@@ -44,6 +44,6 @@ The Dark Angel in heaven, The Devil, just understood that there was a number tha
 
 The Devil then put everyone on crosses in the kingdom of angels. Jesus/Zeus/Mary accused of him of interrupting a godly story.
 
-Behind the scenes he was angry, saying *when do I get to start my reign? When is my turn to run the universe with The Joker?*. In reality, he was in disguise, lurkking in the shadows.
+Behind the scenes he was angry, saying *when do I get to start my reign? When is my turn to run the universe with The Joker?*. In reality, he was in disguise, lurking in the shadows.
 
 Before this, The Devil was an accomplished ancient blackhole "seer" of time. He loved music and even "rock-and-roll" and was a talented seer by understanding how to use "extreme seasons". In this universe, he ended up declaring, he would always run "The Devil's Circle", with his rules. Like the Joker, The Devil is now an anti-god, an ex-seer of time.
