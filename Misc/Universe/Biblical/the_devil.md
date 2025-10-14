@@ -38,7 +38,7 @@ Whereas The Devil might have come from a world with ~7 forces; The Joker might h
 
 It is not necessarily good to become too conscious above, bc you lose power/energy.
 
-The Joker understood pi (π) very well above in red/blue/green Atlantis. He understood there is a number that creates time/circles via equal and opposite reactions, or day/night, and he declared he was the eternal night.
+The Joker understood pi (π) very well above in red/blue/gold Atlantis. He understood there is a number that creates time/circles via equal and opposite reactions, or day/night, and he declared he was the eternal night.
 
 The Dark Angel in heaven, The Devil, just understood that there was a number that created nested realities. Like TV shows, he would say. He did not understood it more, and led by The Joker choose not to. He just declared he knew circles were the most important thing in the universe, and ended up becoming the projected judge of The Shine around ~Year 150BC.
 
