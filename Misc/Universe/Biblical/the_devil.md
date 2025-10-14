@@ -23,3 +23,13 @@ Furthermore, Jesus fell down and leaked this story, comparing Judas to The Devil
 We always wanted to understand how he got so much power and why he betrayed his family in the world above. We knew The Devil came from a dark universe, but he had blended in well with the likes of other archangels as a sort of spirited puzzle solver. When he solved the ultimate puzzle, we realize, he connected to the superblackhole (outside of our original triangle), and asked for the power to prove he was "The King of The Universe" at the expense of all who stood in his path.
 
 He choose not to *really* fall down into being alive here. Instead he possessed people or started plagues, or whispered temptations in people's ears, so he could map certain moments to the Hell of those who opposed him. Perhaps, The Devil could have been born around Year 2000 for a final showdown; however, he choose instead to flip the evil messages in people's ears to friendly ones. 
+
+## The Joker 
+
+A more ancient and powerful alien, The Joker, never truly leaked into having an consciousness on earth.
+
+He was the first to get π in red/blue/gold Atlantis, before starting an automated attack of parallels that led to pure fire and laughter at the end.
+
+While not being as close to "the family" as The Devil, The Joker also seemed like a bright, quick adventure seeker. It wasn't known till he got π what he would do with such power. This is a strategy of ancient aliens to blend in with camouflage. 
+
+Whereas The Devil might have come from a world with ~7 forces; The Joker might have persisted in worlds with ~11 forces and sometimes connecting many worlds at once.
