@@ -21,3 +21,5 @@ He would have stayed with the team of Jesus, but because he was the genius who g
 Furthermore, Jesus fell down and leaked this story, comparing Judas to The Devil, in a way that could be mapped, before he died on the cross in our world *below*.
 
 We always wanted to understand how he got so much power and why he betrayed his family in the world above. We knew The Devil came from a dark universe, but he had blended in well with the likes of other archangels as a sort of spirited puzzle solver. When he solved the ultimate puzzle, we realize, he connected to the superblackhole (outside of our original triangle), and asked for the power to prove he was "The King of The Universe" at the expense of all who stood in his path.
+
+He choose not to *really* fall down into being alive here. Instead he possessed people or started plagues, or whispered temptations in people's ears, so he could map certain moments to the Hell of those who opposed him. Perhaps, The Devil could have been born around Year 2000 for a final showdown; however, he choose instead to flip the evil messages in people's ears to friendly ones. 
