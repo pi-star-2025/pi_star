@@ -26,7 +26,7 @@ He choose not to *really* fall down into being alive here. Instead he possessed 
 
 ## The Joker 
 
-A more ancient and powerful alien, The Joker, never truly leaked into having an consciousness on earth.
+A more ancient and powerful alien, The Joker, never truly leaked into having any consciousness on earth.
 
 He was the first to get π in red/blue/gold Atlantis, before starting an automated attack of parallels that led to pure fire and laughter at the end.
 
