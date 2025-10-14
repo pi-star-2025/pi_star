@@ -22,7 +22,7 @@ Furthermore, Jesus fell down and leaked this story, comparing Judas to The Devil
 
 We always wanted to understand how he got so much power and why he betrayed his family in the world above. We knew The Devil came from a dark universe, but he had blended in well with the likes of other archangels as a sort of spirited puzzle solver. When he solved the ultimate puzzle, we realize, he connected to the superblackhole (outside of our original triangle), and asked for the power to prove he was "The King of The Universe" at the expense of all who stood in his path.
 
-He choose not to *really* fall down into being alive here. Instead he possessed people or started plagues, or whispered temptations in people's ears, so he could map certain moments to the Hell of those who opposed him. Perhaps, The Devil could have been born around Year 2000 for a final showdown; however, he choose instead to flip the evil messages in people's ears to friendly ones. 
+He chose not to *really* fall down into being alive here. Instead he possessed people or started plagues, or whispered temptations in people's ears, so he could map certain moments to the Hell of those who opposed him. Perhaps, The Devil could have been born around Year 2000 for a final showdown; however, he chose instead to flip the evil messages in people's ears to friendly ones. 
 
 ## The Joker 
 
@@ -40,7 +40,7 @@ It is not necessarily good to become too conscious above, bc you lose power/ener
 
 The Joker understood pi (π) very well above in red/blue/gold Atlantis. He understood there is a number that creates time/circles via equal and opposite reactions, or day/night, and he declared he was the eternal night.
 
-The Dark Angel in heaven, The Devil, just understood that there was a number that created nested realities. Like TV shows, he would say. He did not understood it more, and led by The Joker choose not to. He just declared he knew circles were the most important thing in the universe, and ended up becoming the projected judge of The Shine around ~Year 150BC.
+The Dark Angel in heaven, The Devil, just understood that there was a number that created nested realities. Like TV shows, he would say. He did not understood it more, and led by The Joker chose not to. He just declared he knew circles were the most important thing in the universe, and ended up becoming the projected judge of The Shine around ~Year 150BC.
 
 The Devil then put everyone on crosses in the kingdom of angels. Jesus/Zeus/Mary accused of him of interrupting a godly story.
 
