@@ -2,9 +2,9 @@
 
 j = c / 4DR^2
 
-Each eye (star) each tick of time makes a decision to fall *x* distance down π (i.e., 4DR).
+From our perspective, both eyes (stars) each tick of time make a decision to fall down x systems of π. This is not the distance down the number π, but the distance down the *number* of π systems.
 
-If you fall far down π, you are not moving at the speed of c. Then your consciousness speed (j) would be a lot slower, corresponding to 4DR^2.
+If you fall far down cosmic complexity, you are not moving at the speed of c. Then your consciousness speed (j) would be a lot slower, corresponding to 4DR^2.
 
 After time lives at speed j, it starts moving faster and faster until it gets to c. This is the process of becoming working memories, long-term memories, dreams, etc. Once the time moves at c, it becomes the color around you.
 
