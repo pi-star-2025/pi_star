@@ -33,3 +33,17 @@ He was the first to get π in red/blue/gold Atlantis, before starting an automat
 While not being as close to "the family" as The Devil, The Joker also seemed like a bright, quick adventure seeker. It wasn't known till he got π what he would do with such power. This is a strategy of ancient aliens to blend in with camouflage. 
 
 Whereas The Devil might have come from a world with ~7 forces; The Joker might have persisted in worlds with ~11 forces and sometimes connecting many worlds at once.
+
+## π (pi) Understanding/Court
+
+It is not necessarily good to become too conscious above, bc you lose power/energy.
+
+The Joker understood pi (π) very well above in red/blue/green Atlantis. He understood there is a number that creates time/circles via equal and opposite reactions, or day/night, and he declared he was the eternal night.
+
+The Dark Angel in heaven, The Devil, just understood that there was a number that created nested realities. Like TV shows, he would say. He did not understood it more, and led by The Joker choose not to. He just declared he knew circles were the most important thing in the universe, and ended up becoming the projected judge of The Shine around ~Year 150BC.
+
+The Devil then put everyone on crosses in the kingdom of angels. Jesus/Zeus/Mary accused of him of interrupting a godly story.
+
+Behind the scenes he was angry, saying *when do I get to start my reign? When is my turn to run the universe with The Joker?*. In reality, he was in disguise, lurkking in the shadows.
+
+Before this, The Devil was an accomplished ancient blackhole "seer" of time. He loved music and even "rock-and-roll" and was a talented seer by understanding how to use "extreme seasons". In this universe, he ended up declaring, he would always run "The Devil's Circle", with his rules. Like the Joker, The Devil is now an anti-god, an ex-seer of time.
