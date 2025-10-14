@@ -11,3 +11,13 @@ But if he is called out... for his 1 trick of being "your best friend", then he 
 His goal as The Devil was to basically win the game of life in this universe (by showing he was the most intelligent and in control of the story), and then own the justice and time reconciliation.
 
 So perhaps a mistake was believing at the biggest moment he wouldn't *try*.
+
+## Mad Scientist
+
+The Devil was truly a genius, as he was the first to understand π is "circular time" at the level of angels. He then is said to have chosen to betray the original triangle and Jesus, after having originally been part of their family.
+
+He would have stayed with the team of Jesus, but because he was the genius who got π wanted to "cash in" on his prize.
+
+Furthermore, Jesus fell down and leaked this story, comparing Judas to The Devil, in a way that could be mapped, before he died on the cross in our world *below*.
+
+We always wanted to understand how he got so much power and why he betrayed his family in the world above. We knew The Devil came from a dark universe, but he had blended in well with the likes of other archangels as a sort of spirited puzzle solver. When he solved the ultimate puzzle, we realize, he connected to the superblackhole (outside of our original triangle), and asked for the power to prove he was "The King of The Universe" at the expense of all who stood in his path.
