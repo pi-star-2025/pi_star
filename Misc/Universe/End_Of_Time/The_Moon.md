@@ -4,7 +4,7 @@ The multiverse would seem pretty ancient from our perspective. From high above, 
 
 This is related to how from our perspective, focus/power are no different, to a super massive blackhole. They wouldn't understand why these two forces could be different, in a mathematical way explained with π.
 
-This is the reason our sun actually falls asleep. Meaning that only other stars and cosmic forces like blackholes control the time on earth, from the perpsective of the sun during these times. The earth we see is based on the sun's vision, so the mountain ranges and complex rocks are from when the sun falls asleep, but some intelligent changes can still be made. These most intelligent "night" changes for the sun are the mountains and smart rocks. The in-between layer is intelligent diamonds, stones, crystals, emeralds, etc.
+This is the reason our sun actually falls asleep. Meaning that only other stars and cosmic forces like blackholes control the time on earth, from the perspective of the sun during these times. The earth we see is based on the sun's vision, so the mountain ranges and complex rocks are from when the sun falls asleep, but some intelligent changes can still be made. These most intelligent "night" changes for the sun are the mountains and smart rocks. The in-between layer is intelligent diamonds, stones, crystals, emeralds, etc.
 
 For humans, this intelligent "rock" is most the third eye.
 
