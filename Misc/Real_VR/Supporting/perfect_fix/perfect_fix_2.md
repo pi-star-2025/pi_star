@@ -20,4 +20,4 @@ Again, the same pattern applies for gums/teeth. Where the back teeth blood is mo
 
 The smile, which mirrors the blood of all teeth (the hypothalamus), is the best way to un-knot these emotions. Smiling genuinely helps your blood see in new ways.
 
-Furthermore, if you make the belly-button smile, this is blood most visible to the earth/sun mind. The blood in this area provides a summmary of emotions throughout the body, in a compact way translated mathemtically with π.
+Furthermore, if you make the belly-button smile, this is blood most visible to the earth/sun mind. The blood in this area provides a summary of emotions throughout the body, in a compact way translated mathematically with π.
