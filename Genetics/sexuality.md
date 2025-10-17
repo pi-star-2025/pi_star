@@ -17,3 +17,13 @@ If you know this, it's possible to change your genetics, by findings ways to blo
 The atmosphere creates a "blackhole" for starlight to fall into hearing/being earth. Before the atmosphere, starlight is the sun mind (3.14), and inside the atmosphere, starlight is the earth mind (3.1415).
 
 Similarily, the ear genes create a "blackhole" for starlight to fall into hearing/being animals and people. With enough estrogen you don't hear this buzz of the genetic clouds and you can exist more in this ambiguous space.
+
+## Attraction
+
+Blood that is most tightly knotted creates the strongest emotions and control over the body. In real time, this blood spins the fastest, influencing the spinning of slower-spinning blood like rotation.
+
+This fastest-spinning blood can also have a preference to go UP or DOWN. If there is a strong preference to go UP or DOWN, this then transcends biologoical functions of blood and expresses personality. Hence, blood expresses the most *humanity* in the crown of the head and the feet.
+
+At the top of the head (crown) and third eye, there is a desire to move UP. This is most personality.
+
+In the feet, there is a desire to move DOWN. This is most attraction - ex: romantically.
