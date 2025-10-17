@@ -22,7 +22,7 @@ Similarily, the ear genes create a "blackhole" for starlight to fall into hearin
 
 Blood that is most tightly knotted creates the strongest emotions and control over the body. In real time, this blood spins the fastest, influencing the spinning of slower-spinning blood like rotation.
 
-This fastest-spinning blood can also have a preference to go UP or DOWN. If there is a strong preference to go UP or DOWN, this then transcends biologoical functions of blood and expresses personality. Hence, blood expresses the most *humanity* in the crown of the head and the feet.
+This fastest-spinning blood can also have a preference to go UP or DOWN. If there is a strong preference to go UP or DOWN, this then transcends biological functions of blood and expresses personality. Hence, blood expresses the most *humanity* in the crown of the head and the feet.
 
 At the top of the head (crown) and third eye, there is a desire to move UP. This is most personality.
 
