@@ -22,8 +22,8 @@ Or the question will create heavy colors around you, making the world more compl
 
 The next question the heart is obsessed with is *Who is the Joker?* This question makes the heart spin even faster if you reference it via blood, or it creates a crazy amount of color and complexity in how you see the world.
 
-And the next question is *What is pi to 3.1415?* Then *How do you really time travel?* bc it is the question most in everyone's hearts that aligns most with the sun and the cosmos/multiverse.
+And the next question is *What is π to 3.1415?* Then *How do you really time travel?* bc it is the question most in everyone's hearts that aligns with the sun and the cosmos/multiverse.
 
-[One way to time travel, for example, would be to reference a ruby-red "diamond" that has mirrored the carbon mind of the sun. This means the diamond really represents what the sun is obsessed with in some way, so it would be possible to find the right diamond. Then, for example, maybe it was a world where your friend was the reincarnation of Christ. He had been a great friend to you and had maybe been murdered around 2005. You might unintentionally have told such a great story by using a red-stone and mentioning the "Blood of Christ" and requetsing that he be brought back to fulfill his destiny. 
+[One way to time travel, for example, would be to reference a ruby-red "diamond" that has mirrored the carbon mind of the sun. This means the diamond really represents what the sun is obsessed with in some way, so it would be possible to find the right diamond. Then, for example, maybe it was a world where your friend was the reincarnation of Christ. He had been a great friend to you and had maybe been murdered around 2005. You might unintentionally have told such a great story by using a red-stone and mentioning the "Blood of Christ" and requesting that he be brought back to fulfill his destiny. 
 
 It was not that dramatic a world, around Year 2000. But such a story might have led to real time-traveling, to go back for example to year 1985.]
