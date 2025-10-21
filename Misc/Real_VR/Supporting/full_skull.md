@@ -23,3 +23,7 @@ From the perspective above, the top of the head is a crown. The crown can predic
 Furthermore, these decisions are enforced when the crown continuously anticipates them, until a forcefield develops. For example, for the trees it is carbon-dioxide clouds and for the eyes it is bone.
 
 This is similar to how if the original triangle (π) anticipates seeing decisions enough times it encapsulates space with the original 3.14 crown/circle. The original forcefield is the force of "blue", creating blue space.
+
+The blue space is believed to be a giant mirror in a super massive blackhole universe (where only gods live). Through reflection it invited other universes into a mirror maze, to fall into the "game of life" here. First, it would start with great ancient seers, then regular gods, and then a Maze/Hole is established, and those who understand can travel to this world through the mirror reflections.
+
+Our particular mirror is blue *most* because it is slippery. You slip-n-slide into our particular blackhole, which is one method to represent the force of 4 from (3.14 of π)
