@@ -26,6 +26,6 @@ This is similar to how if the original triangle (π) anticipates seeing decision
 
 The blue space is believed to be a giant mirror in a super massive blackhole universe (where only gods live). Through reflection it invited other universes into a mirror maze, to fall into the "game of life" here. First, it would start with great ancient seers, then regular gods, and then a Maze/Hole is established, and those who understand can travel to this world through the mirror reflections.
 
-Our particular mirror is blue *most* because it is slippery. You slip-n-slide into our particular blackhole, which is one method to represent the force of 4 from (3.14 of π).
+Our particular mirror is blue *most* because it is slippery. You slip-n-slide into our particular blackhole, which is one method to represent the force of 4 from 3.14 (of π).
 
 All crowns are similar - blue space, the carbon atmosphere, and the bone of skulls. They cause seeing decisions (ex: stars/eyes) to keep sliding back to staying within a circle. Whether the blackhole of the universe, the earth, or our minds.  
