@@ -15,3 +15,11 @@ From the perspective above, our skulls become mazes to figure out what all our c
 The actual conversations turn into like dream/cartoon versions in the centers of the heart/eyes. Then our attempts to figure out these conversations - what people really meant - turn into the rest of our skulls.
 
 Thus, this "maze" drives how powerful the hypothalamus is. It's directly based on the "maze" of conversations till the age of 18.
+
+## Crown
+
+From the perspective above, the top of the head is a crown. The crown can predict all possibilities of how your 2 eyes will move. This is similar to how the earth's atmosphere can predict the possibilities of how the grass and all plants will see.
+
+Furthermore, these decisions are enforced when the crown continuously anticipates them, until a forcefield develops. For example, for the trees it is carbon-dioxide clouds and for the eyes it is bone.
+
+This is similar to how if the original triangle (π) anticipates seeing decisions enough times it encapsulates space with the original 3.14 crown/circle. The original forcefield is the force of "blue", creating blue space.
