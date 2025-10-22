@@ -13,3 +13,16 @@ A practical example is the angles of the nose. The straight line down captures t
 Another example is the angle described by how fast a planet rotates (day/night). Each rotation has a straight line from star-to-planet and a slanted line (from planet to galaxy). If there is a greater slant/angle to the galaxy, it means the planet will rotate diurnally faster (day/night). This means the planet's vision (star and galaxy) has greater distance between the 2 π's.
 
 The reason is that with a sharper angle/slant by the galaxy, more blue space is created. The galaxy has a larger π; the star has a smaller π, resulting in more blue space for the star's vision in understanding the planet, which translates into additional spinning.
+
+## Space Time
+
+The 3-body problems of 3.14 space cross in *two* 90-degree angles, indicating 8D fabric. In a way, this is a 4-body problem, where the 4th body is the 8D.
+
+The original god 3 (straight line) is crossing with a galaxy of heavenly stars (angled line), and the indication that this is "reality" is an additional 8D 90-angle back to all original shapes.
+
+This 8D angle is a vector straight through 3.14.
+
+Then within this 3.14 fabric, light beams penetrate the blue fabric with 90-degree angles (i.e. 3.1415).
+
+In summary, 3.1415 is when *3* right angles are in sync to manifest light.
+
