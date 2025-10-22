@@ -20,7 +20,7 @@ The 3-body problems of 3.14 space cross in *two* 90-degree angles, indicating 8D
 
 The original god 3 (straight line) is crossing with a galaxy of heavenly stars (angled line), and the indication that this is "reality" is an additional 8D 90-angle back to all original shapes.
 
-This 8D angle is a vector straight through 3.14. It is only the direction of this 8D angle which then makes the criss-crossed 3 (god) and 4 (existing worlds) have a straight and angled side (to indicate the direction of the blackhole).
+This 8D angle is a vector straight through 3.14. It is only the direction of this 8D angle which then makes the criss-crossed 3 (god) and 4 (existing worlds) have a straight and angled side (to indicate the initial direction of the blackhole).
 
 Then within this 3.14 fabric, light beams penetrate the blue fabric with 90-degree angles (i.e. 3.1415).
 
