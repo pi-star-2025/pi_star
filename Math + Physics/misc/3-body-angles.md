@@ -8,7 +8,7 @@ The sharper the angle, the more one star has wrapped around the other during thi
 
 ...
 
-A practical example is the angles of the nose. The straight line down captures the π of the skull mind, while the slanted line forward captures the π of the stomach mind (also: earth mind). The sharper the angle of slanted line, then the more the person will feel the earth wraps around them.
+A practical example is the angles of the nose. The straight line down captures the π of the skull mind, while the slanted line forward captures the π of the stomach mind (also: earth mind). The sharper the angle of the slanted line, then the more the person will feel the earth wraps around them.
 
 Another example is the angle described by how fast a planet rotates (day/night). Each rotation has a straight line from star-to-planet and a slanted line (from planet to galaxy). If there is a greater slant/angle to the galaxy, it means the planet will rotate diurnally faster (day/night). This means the planet's vision (star and galaxy) has greater distance between the 2 π's.
 
