@@ -4,7 +4,7 @@ The top of the atmosphere is used both for mother’s to create milk, and for dr
 
 Cows are so in touch with their nipples, bc they have high estrogen, that they are very in touch with the process of using/being the clouds. The world sort of flashes and flutters around them, like water colors, bc they feel so high and in touch with the sky.
 
-Together on an open-range, especially many cows over many acres, live in a world of semi-dreaming. Especially dairy cows, which have special estrogen. This can create a dreamy trance for those living around the cows.
+Together on an open-range, especially many cows over many acres, they live in a world of semi-dreaming. Especially dairy cows, which have special estrogen. This can create a dreamy trance for those living around the cows.
 
 The cows have super-strong stomachs, which allows them to fill with high amounts of atmosphere, and you can even smell it.
 
