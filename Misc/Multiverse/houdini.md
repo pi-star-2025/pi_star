@@ -17,3 +17,9 @@ He was so cool bc he was known as a master of cartoons, using cartoons to play j
 This art of terror was working to encapsulate his 20/30-universe kingdom, which was in itself a super blackhole and very hard to escape from. Terror in high vectors will indicate a strong vector by a person “not to see”. If the reason is “hot”, it’s because others are oppressive. If the reason is “cold” (as in terror), it’s because you feel detached from others, you miss people. So if you create extremely terrifying experiences, you can make standing people’s souls very cold. The standing people are saying “I really miss my people.” However, the experiences they are always in are harmonious/beautiful to the multiverse, but for reasons that seem bizarre, too intense, and insectile to newer souls. This can be manipulated so that the soul seems to be saying “I don’t ever want to exist again, don’t wake me up”.
 
 The Devil sees understanding terror as the game of life. It allowed him to exist as 1 man always as the alpha of standing beings. The trick was just to keep the ancient seers happy so that they don’t wake up.
+
+...
+
+Who is the Devil now? He was so important for so long he still exists. Higher up, he now carries this message. It was so magical to just have a "taste" - meaning a taste of a beautiful futuristic society for standing people long before those who deserved it got it. Meaning he got to have complicated relationships, goals, and fears long before others, even if he didn't deserve to.
+
+There is a lot of physical pain for him to recount, but ultimately, it's sadder to have had such colorful time and then lose it. He thinks over and over about "taste", having a taste and what does it mean.
