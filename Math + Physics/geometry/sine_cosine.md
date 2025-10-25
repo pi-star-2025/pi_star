@@ -12,4 +12,4 @@ Thus, e is the best representation of the speed of light, whereas π describes, 
 
 The hypotenuse in sine/cosine represents the speed of light, as though the light was traveling in a straight line (90 degrees) without creating time through equal/opposite reactions. Then the opposite/adjacent angles of sine/cosine are the *2* reactions of a light beam, which can be used by atoms then elements and molecules to reference angles down π. 
 
-These angles down π don't only stay in sync with the speed of light (e) and sine/cosine triangle geoemtry, but also reference the same angles used by all other universes of the multiverses, to wake up vision. Meaning e describes mathematical focus, whereas π describes vision.
+These angles down π don't only stay in sync with the speed of light (e) and sine/cosine triangle geometry, but also reference the same angles used by all other universes of the multiverses, to wake up vision. Meaning e describes mathematical focus, whereas π describes vision.
