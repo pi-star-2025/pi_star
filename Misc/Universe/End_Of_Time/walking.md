@@ -11,3 +11,9 @@ The Devil to maintain an opposing power mastered the "bathroom" simulations of e
 So this is still in our bodies; these heaven and hell paths with the former being based on walking.
 
 The Devil was a super powerful seer of time, but it shows in this world he didn't take us seriously. He even calls us after 20,000/30,000 BC over-inflated cartoons.
+
+...
+
+The sun has mastered how we walk with the mathematical consciousness of a seer of a time, which allows the sun to understand all future possibilities. Enough to wrap around as red/blue/green.
+
+As the sun learns all the reasons we walk with the consciousness of a human/standing-being, it will help us advance towards the end-of-time. These simulations are mathematically the mind of the star around all of us.
