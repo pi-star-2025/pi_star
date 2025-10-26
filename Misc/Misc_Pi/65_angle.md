@@ -22,4 +22,8 @@ From the perspective of circular time, you add branches as a “seer” as you b
 
 From this we can infer that the actual "circle" we see is referencing the diagonal of the largest prime number of π. In particular this diagonal is a straight line down the number, based on the fall down the decimal places referring to branches of time.
 
-More exactly, this fall describes how to "square" the largest prime number, by giving the number a y axis. Giving prime numbers a y-axis allows them to be balanced with equal and opposite reactions (sine/cosine), which gives circles their smoothness. 
+More exactly, this fall describes how to "square" the largest prime number, by giving the number a y axis. Giving prime numbers a y-axis allows them to be balanced with equal and opposite reactions (sine/cosine), which gives circles their smoothness.
+
+In fact, π simply describes how to square larger and larger prime numbers after 3.141592. And it does so in the most efficient way possible.
+
+Across the multiverse, this is the value of circles. Because the light exists in both the past and future (4D), it can add symmetry to what is un-symmetrical in 3D. The larger the prime number you add symmetry to, the more the vision comes to life.
