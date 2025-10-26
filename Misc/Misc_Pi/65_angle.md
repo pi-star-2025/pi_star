@@ -15,3 +15,11 @@ This can be demonstrated by understanding 65, including the fall from 6 to 5, is
 The reason 65 is the most compact way to represent a 45-45-90 triangle is because the “fall” is the hypotenuse (i.e. the speed of light/vision of the star). From our perspective it looks like a parabola (ex: around the earth). 6 and 5 are both decisions with the power of e (e^1). 6 adds one electron. 5 falls one tick further down the speed of light. So both represent 1, and the decision between them has the power of the square root of 2.
 
 As you keep going down π, the numbers stack up shapes and angles that create vision. The number is complex bc the best way to represent the diagonals of shapes (or hypotenuses for triangles) is with the fall down the numbers after 3.141592. This fall represents how the speed of light (e) gets expanded by multiple branches of time, for example expanding by the square root of 2 with 3.14159265.
+
+...
+
+From the perspective of circular time, you add branches as a “seer” as you become the diagonals of larger and large prime numbers. Prime numbers represent new shapes not yet integrated. A 45-45-90 triangle represents mastering the simplest prime number (2), by “squaring” it. This results in 2 possibilities of time.
+
+From this we can infer that the actual "circle" we see is referencing the diagonal of the largest prime number of π. In particular this diagonal is a straight line down the number, based on the fall down the decimal places referring to branches of time.
+
+More exactly, this fall describes how to "square" the largest prime number, by giving the number a y axis. Giving prime numbers a y-axis allows them to be balanced with equal and opposite reactions (sine/cosine), which gives circles their smoothness. 
