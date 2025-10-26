@@ -1,7 +1,9 @@
 ## 65 Angle
 
 e represents the speed of light (over an x-y plane)
+
 3.14 of π refers to e^2 (like a parabola)
+
 3.1415 of π refers to e^3 (like a star)
 
 None of these yet represent a vision-related improvement π makes over e.
