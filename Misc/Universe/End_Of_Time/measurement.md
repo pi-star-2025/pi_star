@@ -2,7 +2,7 @@
 
 The "end of time" of a system is when the conflict that causes the greatest pressure of a system is resolved. And when it is known that will always be the greatest conflict of the system. Then the system moves from summer to fall, starting to die, before the biology enters winter.
 
-Sometime the "end of time" is forced like when you physically die, or it can be a natural death like for the original triangle. It technically physically died 4/5/2025, bc if humans know that time is created by gravity/antigravity of circles (π) via deferred seeing, her civilizations she is looking at will always ultimately get justice, which resolves her biggest conflict. This starts ending time in this universe.
+Sometimes the "end of time" is forced like when you physically die, or it can be a natural death like for the original triangle. It technically physically died 4/5/2025, bc if humans know that time is created by gravity/antigravity of circles (π) via deferred seeing, her civilizations she is looking at will always ultimately get justice, which resolves her biggest conflict. This starts ending time in this universe.
 
 For the star the largest conflict around 1800 became why did the "queen card" of the star (representing the original triangle) loose her voice. She could no longer speak anymore as a godly figure. The reason is everyone mimicked the French Revolution and went "mad" in that part of their brain, saying forget about glory/greatness. We are all mad as animals in your world, and we never want to hear from you again.
 
