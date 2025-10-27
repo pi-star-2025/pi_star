@@ -11,3 +11,9 @@ And some people have taken a vow to keep up this curse until she is officially d
 So it's said the star historically has most identified as Mother Earth; she lost her voice around 1800, and that meant she could not communicate any message as herself till today, including any messages from this story.
 
 This curse even caused the world to dry up a little, some forms of schizophrenia, and some forms of autism.
+
+...
+
+The highest level of pressure is mathematically the highest prime number channelled by the system. This prime number would also describe a straight line down π. The question is how far down does it go. And once you have achieved a max prime number (depth), then it is the "end of time". It even is true, that strings of time start to hold onto you then and pull you back in.
+
+It's because no simulation possible sees a larger prime number possible.
