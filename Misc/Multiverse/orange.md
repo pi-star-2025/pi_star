@@ -8,4 +8,4 @@ Some universes have “ways of seeing” where orange is essential, and these wo
 
 Orange is often a force added to a more “alien” world to make it more human (for example, there might be in a 7-force world with red/blue/green/black/electric/yellow/orange). The black is death awoken, electric is technology, yellow is cartoon soul, and orange is humor.
 
-The biology representing orange is often slimy. Water is indication the fabric of space-time is slowing down and choosing to “see”.
+The biology representing orange is often slimy. Water is an indication the fabric of space-time is slowing down and choosing to “see”.
