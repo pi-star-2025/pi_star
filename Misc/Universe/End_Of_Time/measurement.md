@@ -20,7 +20,7 @@ It's because no simulation possible sees a larger prime number possible.
 
 ...
 
-For a person, when you move on from your largest prime number (which can happen during your life) your belly button "looks up" always. Before that the belly-button iteslf (the umbilical cord) is always looking down.
+For a person, when you move on from your largest prime number (which can happen during your life) your belly button "looks up" always. Before that the belly-button itself (the umbilical cord) is always looking down.
 
 The same applies for the center of the earth/star. When the earth/star moves on from the largest-pressure conflict (largest prime number of π, i.e. highest T of T = e^π/e^2), the center looks UP.
 
