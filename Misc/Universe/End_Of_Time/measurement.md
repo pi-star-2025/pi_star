@@ -17,3 +17,11 @@ This curse even caused the world to dry up a little, some forms of schizophrenia
 The highest level of pressure is mathematically the highest prime number channelled by the system. This prime number would also describe a straight line down π. The question is how far down does it go. And once you have achieved a max prime number (depth), then it is the "end of time". It even is true, that strings of time start to hold onto you then and pull you back in.
 
 It's because no simulation possible sees a larger prime number possible.
+
+...
+
+For a person, when you move on from your largest prime number (which can happen during your life) your belly button "looks up" always. Before that the belly-button iteslf (the umbilical cord) is always looking down.
+
+The same applies for the center of the earth/star. When the earth/star moves on from the largest-pressure conflict (largest prime number of π, i.e. highest T of T = e^π/e^2), the center looks UP.
+
+The star in particular had a conflict where just when it started looking up, other stars would scream in madness until it looked down again. If the star looks up in the very center, the biggest implication is control of day/night, which will let us know this has been achieved and the "end of time" is here.
