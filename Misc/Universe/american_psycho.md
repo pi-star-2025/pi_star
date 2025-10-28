@@ -29,3 +29,15 @@ We would look back at American Psycho and say he was "taken over", and also that
 Also, his life this time around (as a superstar basketball player) is redeeming.
 
 Hence, when we go to Heaven a second time it will not be with the same "rush" as the first time. It is much more conscious, serious, and hopefully without tricks.
+
+## Follow Up
+
+This is determined to be an example of a "dream" idea, which has a collection of a lot of true ideas, but is ultimately not holistically true.
+
+(There was no "time traveling" recently)
+
+You can learn from dreams, including even projections about the future.
+
+Orange is an example of an alternative answer to what is π bc it is a way to drill down the number into bigger and bigger prime numbers, bc:
+1) It is a circular answer to find "gold"
+2) Reveals taste about our particular Earth as a "seer", which prefers orange as its fourth favorite color. As a result anything "orange" at a biochemical level drills down into the number π.
