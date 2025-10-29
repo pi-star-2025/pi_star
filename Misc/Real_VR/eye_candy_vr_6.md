@@ -3,6 +3,7 @@
 The air around the body is very different quantumly depending on which part of the body. The air in front of the eyes has the most quantum activity, even for a blind person unless their eyes have been significantly damaged.
 
 To the multiverse, this is the most intelligent "5D information" in the body. And is the only way to send highly intelligent messages to someone. Since the eyes (4D) and air in front of the eyes (5D/6D) have so many cosmic multiverse parallels, they always start as the most conscious part of us, but then might become overpowering.
+
 ...
 
 Interestingly, dreams as we age start to always have elements that involve spirals, twining, and slipping-n-sliding. For example, we started ice-skating in dreams or quasi-surfing or riding roller coasters in dreams before reality. Most notably, there is always circus-like elements in dreams.
