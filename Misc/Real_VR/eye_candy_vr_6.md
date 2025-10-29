@@ -8,7 +8,7 @@ To the multiverse, this is the most intelligent "5D information" in the body. An
 
 Interestingly, dreams as we age start to always have elements that involve spirals, twining, and slipping-n-sliding. For example, we started ice-skating in dreams or quasi-surfing or riding roller coasters in dreams before reality. Most notably, there is always circus-like elements in dreams.
 
-The reasons is because if a world has circular elements these can be used to communicate with other worlds. Anything with intelligent spiraling circles (many digits down π) can be used for networking interactions.
+The reason is because if a world has circular elements these can be used to communicate with other worlds. Anything with intelligent spiraling circles (many digits down π) can be used for networking interactions.
 
 These circus elements in dreams are used to slide us out of using the eyes, if we get too high in reality. The spirals are not just physical elements, but also rhythms created in dream worlds to be more circular. This can make it slippery to use the eye air, and become *reasons* we fall asleep. We actually start falling into existing dream worlds, which have circular elements intwined with the eye Nitrogen.
 
