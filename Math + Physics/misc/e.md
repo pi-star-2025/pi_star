@@ -10,9 +10,7 @@ Thus, the speed of light is derived from e.
 
 ...
 
-Importantly, it's also a way to quantify the 1 of 3/4 and 4/5. And 5/π
-
-With a 2D scale, the backups inflate the power of 3 by a ratio of 1:2.71828.
+With a 8D scale, the backups inflate the power of 1 of π by a ratio of 1:2.71828.
 
 ...
 

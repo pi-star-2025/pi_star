@@ -1,25 +1,29 @@
-## Sleep - Left Ear
+## Genes in ears
 
-The 65 (of 3.14159265) tug of the left ear towards the center of the earth is the overall physical reason we fall asleep
+Sexuality can be traced to the blackholes of air that blow into your ears from the stars/clouds.
 
-For the sun it’s the same. A tug towards the center of the earth.
+This air corresponds to lower genetics, which can be influenced more with freewill early in life. Genetics you see in the eyes/hair are often determined so early in life you consciously never had any say.
 
-It can be traced to the first and most powerful magnetic field (day/night) of 3.14159265
+These genetics map directly to the foot lines, left ear to left foot and right ear to right foot. So they are possible to minorly change, but are very hard to tangibly change. 
 
-## Sexuality - Left Ear
+Also this can be where any secrets of your genes/life are stored - in the "way you hear" and the foot lines.
 
-It’s also true that your sexuality is referenced by the left ear
+...
 
-It's bc 3.14159265 connects to what in your vision most *attracts* you
+If you know this, it's possible to change your genetics, by findings ways to blow back (kiss) the air in your ears as much as possible. You also need to free your mind of "secrets" and other highly-knotted thoughts.
 
-Romance/sleep both connect to this dominant 3.14159265 magnetic field
+## 4D Blackhole
 
-The secrets are highly nested before actually getting to the 3.14159265.
+The atmosphere creates a "blackhole" for starlight to fall into hearing/being earth. Before the atmosphere, starlight is the sun mind (3.14), and inside the atmosphere, starlight is the earth mind (3.1415).
 
-The eardrum uses an alarm architecture pattern, with various levels/compartments to keep secrets.
+Similarily, the ear genes create a "blackhole" for starlight to fall into hearing/being animals and people. With enough estrogen you don't hear this buzz of the genetic clouds and you can exist more in this ambiguous space.
 
-## Left Ear / Right Ear
+## Attraction
 
-Whereas the left ear often connects you to the past, the right ear connects you more to the future.
+Blood that is most tightly knotted creates the strongest emotions and control over the body. In real time, this blood spins the fastest, influencing the spinning of slower-spinning blood like rotation.
 
-One pushes towards earth and the other towards the star.
+This fastest-spinning blood can also have a preference to go UP or DOWN. If there is a strong preference to go UP or DOWN, this then transcends biological functions of blood and expresses personality. Hence, blood expresses the most *humanity* in the crown of the head and the feet.
+
+At the top of the head (crown) and third eye, there is a desire to move UP. This is most personality.
+
+In the feet, there is a desire to move DOWN. This is most attraction - ex: romantically.
