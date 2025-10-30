@@ -1,6 +1,6 @@
 ## Hot / Cold - Pain
 
-Across the multiverse, there is the concept of heat and biology disintegrating bc of excessive heat/time. Heat means to drill down π into higher and higher prime numbers, until it overloads and potentially pains the system.
+Across the multiverse, there is the concept of heat and how biology disintegrates bc of excessive heat/time. Heat means to drill down π into higher and higher prime numbers, until it overloads and potentially pains the system.
 
 Across many universes, heat is the same.
 
