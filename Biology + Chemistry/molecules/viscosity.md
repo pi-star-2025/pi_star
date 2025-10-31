@@ -2,7 +2,7 @@
 
 Viscosity indicates quantum spinning in molecules.
 
-Visosity of oxygen-derived molecules indicate how much social intelligence the molecules have at a quantum level.
+Viscosity of oxygen-derived molecules indicate how much social intelligence the molecules have at a quantum level.
 
 For example honey and saliva spin more than water, and as a result the oxygen (force of 4) has more intelligence.
 
