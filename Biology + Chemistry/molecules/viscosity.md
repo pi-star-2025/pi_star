@@ -6,4 +6,4 @@ Viscosity of oxygen-derived molecules indicate how much social intelligence the 
 
 For example honey and saliva spin more than water, and as a result the oxygen (force of 4) has more intelligence.
 
-Mucus has even more viscosity and as a result can store even more social intelligence. Furthermore, evolution of human eyes and brain increased viscosity ("stickiness") to accelerate high intelligence of systems.
+Mucus has even more viscosity and as a result can store even more social intelligence. Furthermore, evolution of human eyes and brain increased viscosity ("stickiness") to accelerate intelligence of complex systems.
