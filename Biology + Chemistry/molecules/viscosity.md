@@ -1,6 +1,6 @@
 ## Viscosity
 
-Viscosity indicates quantum spinning in molecules.
+Viscosity indicates more quantum spinning in molecules.
 
 Viscosity of oxygen-derived molecules indicate how much social intelligence the molecules have at a quantum level.
 
