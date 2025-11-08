@@ -13,3 +13,13 @@ Focusing in 2 directions on 16 (0.0625), indicates a direction towards a fourth 
 ...
 
 Hence the square root of 2 is a mathematical slant from 3D to 4D.
+
+## Echo
+
+The square root of 2 is also the most efficient way to create an echo in our universe.
+
+It is the way our core god (triangle of π) sees day/night. As with all seers, in some way this is with the echo of a wave and wavelet (large and small).
+
+However, there is some preference in how this is done by the core god. Our core god simply says, the wave will share with the wavelets ultimately.
+
+And then technically, the results as you go down the number are the response by the multiverse, which is also called “music” or “music of the mind of god”.
