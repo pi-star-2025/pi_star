@@ -30,8 +30,16 @@ The square root of 2 represents the largest prime number ("the hive") in our uni
 
 This is because the sqrt-2 wraps around all the other square roots, indirectly including them in the end rational number. So the sqrt-2 is correlated directly to how far you go down π. And itself is the furthest up π (3.14159265).
 
-All square roots can end if you have an end to π. The calculation is then based on all higher prime numbers in the final deck of primes.
+All square roots can end if you have an end to π. The calculation is then based on all higher prime numbers in the final deck of primes (so 2 includes 3, 5, 7, 11, 13, etc., whereas 7 includes 11, 13, etc.)
 
-And the square root of 2 would be the highest calculation up, representing a final "rational" area for the circle.
+The square root of 2 is the root vision. By inclduing the end calculations of all other square roots, it creates a final "rational" area for the circle, and a final prime number.
 
-Hence, the sqrt-2 most represents the largest prime number in our universe.
+...
+
+The max(prime) is indicated by the angle derived by max(y) of y = cosine(x) * sine(x).
+
+Where max(y) = .5, and x = 45 degrees 
+
+This is because cosine(x) * sine(x) is directly proportional to (how much you “see” / how far you fall in with “vision”). 
+
+Or, (Opposite * Adjacent) / Hypotenuse^2
