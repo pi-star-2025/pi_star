@@ -32,7 +32,7 @@ This is because the sqrt-2 wraps around all the other square roots, indirectly i
 
 All square roots can end if you have an end to π. The calculation is then based on all higher prime numbers in the final deck of primes (so 2 includes 3, 5, 7, 11, 13, etc., whereas 7 includes 11, 13, etc.)
 
-The square root of 2 is the root vision. By inclduing the end calculations of all other square roots, it creates a final "rational" area for the circle, and a final prime number.
+The square root of 2 is the root vision. By including the end calculations of all other square roots, it creates a final "rational" area for the circle, and a final prime number.
 
 ...
 
