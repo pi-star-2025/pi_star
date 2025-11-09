@@ -23,3 +23,15 @@ It is the way our core god (triangle of π) sees day/night. As with all seers, i
 However, there is some preference in how this is done by the core god. Our core god simply says, the wave will share with the wavelets ultimately.
 
 And then technically, the results as you go down the number are the response by the multiverse, which is also called “music” or “music of the mind of god”.
+
+## Largest Prime Number
+
+The square root of 2 represents the largest prime number ("the hive") in our universe. It is furthest you can extend the day/night vision of the original π triangle.
+
+This is because sqrt-2 wraps around all the other square roots, indirectly including them in the end rational number. So the sqrt-2 is correlated directly to how far you go down π. And itself is the furthest up π (3.14159265).
+
+All square roots can end if you have an end to π. The calculation is then based on all higher prime numbers in the final deck of primes.
+
+And the square root of 2 would be the highest calculation up, representing a final "rational" area for the circle.
+
+Hence, the sqrt-2 most represents the largest prime number in our universe.
