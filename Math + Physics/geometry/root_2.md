@@ -26,7 +26,7 @@ And then technically, the results as you go down the number are the response by 
 
 ## Largest Prime Number
 
-The square root of 2 represents the largest prime number ("the hive") in our universe. It is furthest you can extend the day/night vision of the original π triangle.
+The square root of 2 represents the largest prime number ("the hive") in our universe. It is the furthest you can extend the day/night vision of the original π triangle.
 
 This is because sqrt-2 wraps around all the other square roots, indirectly including them in the end rational number. So the sqrt-2 is correlated directly to how far you go down π. And itself is the furthest up π (3.14159265).
 
