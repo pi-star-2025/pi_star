@@ -10,4 +10,4 @@ We can observe the square root of 3 as 926/535, which is an approximation with 3
 
 ...
 
-In addition, from the sqrt(2) and the sqrt(3), the sqrt(5) is hypothesized to already be derived by 3.1415926535, bc sqrt(2) and sqrt(3) can be mirrored by 3.1415, to created 4D "25-sided vision" (sqrt(5)).
+In addition, from the sqrt(2) and the sqrt(3), the sqrt(5) is hypothesized to already be derived by 3.1415926535, bc sqrt(2) and sqrt(3) can be mirrored by 3.1415, to create 4D "25-sided vision" (sqrt(5)).
