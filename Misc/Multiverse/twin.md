@@ -6,7 +6,7 @@ Since Jesus was so powerful, it was accepted by the multiverse.
 
 In this parallel universe, whoever was "losing" (Jesus vs The Devil) in our universe, would get a chance to come back. This created 2000 years of karma.
 
-This Twin Universe is said to be a like a lighter "Hollywood" version of our universe. It is more perfect, but it feels like you have less freewill. Yet, you still have distinct freewill from our universe, even though parallel characters developed by Year 2000.
+This Twin Universe is said to be like a lighter "Hollywood" version of our universe. It is more perfect, but it feels like you have less freewill. Yet, you still have distinct freewill from our universe, even though parallel characters developed by Year 2000.
 
 In this Twin Universe, they time-traveled back to the 1980s, so they could end at Year 2000.
 
