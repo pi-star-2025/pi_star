@@ -10,6 +10,6 @@ This Twin Universe is said to be like a lighter "Hollywood" version of our unive
 
 In this Twin Universe, they time-traveled back to the 1980s, so they could end at Year 2000.
 
-This Twin Universe is said to be "futuristic" in the experience of human life. In between our universe and the Twin Universe is an In-Between Universe, which was created for third-parties to study these two human universes and understand what was going on. The In-Between Universe had a human experience that was semi-futuristic, but the souls were just cartoons blended from the two other worlds. This 1.5 world was like a multiverse movie theatre to understand the human expereince, by looking at two times mixed together.
+This Twin Universe is said to be "futuristic" in the experience of human life. In between our universe and the Twin Universe is an In-Between Universe, which was created for third-parties to study these two human universes and understand what was going on. The In-Between Universe had a human experience that was semi-futuristic, but the souls were just cartoons blended from the two other worlds. This 1.5 world was like a multiverse movie theatre to understand the human experience, by looking at two times mixed together.
 
 For the time-traveling science and beyond, this cosmic structure and similar architectures can be used for communication.
