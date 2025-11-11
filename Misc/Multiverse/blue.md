@@ -4,7 +4,7 @@ Via the square root of 3, the universe can break basic day/night into a next-lev
 
 For example, for π in this universe it is: 1) Do you want blue? 2) Do you want darkness?
 
-This is represented by 3.14159265353 of π, in particular.
+This is represented by 3.1415926535 of π, in particular.
 
 Then if extended to a planet, it can evolve into 1) Do you want good weather? 2) Do you want bad weather?
 
