@@ -16,4 +16,4 @@ As you go further down π, sqrt(2)/sqrt(3)/sqrt(5) keep impacting the numbers if
 
 ...
 
-The sqrt(5)/3.1415926535 in our universe points to what "shines". Whereas the sqrt(2) is most Red, the sqrt(3) is most Blue, the sqrt(5) is most Yellow. This can be referenced by a streak of lightening, a "spark" of life in the ocean, or indirectly by the green of plants.
+The sqrt(5)/3.1415926535 in our universe points to what "shines". Whereas the sqrt(2) is most Red, the sqrt(3) is most Blue, the sqrt(5) is most Yellow. This can be referenced by a streak of lightning, a "spark" of life in the ocean, or indirectly by the green of plants.
