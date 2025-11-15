@@ -16,4 +16,4 @@ Historically, nemeses of people would always "see" us in directions where we wou
 
 ...
 
-As we overcomes sleep more and more, it is a straight line to existing with less blood (more in the after life).
+As we overcome sleep more and more, it is a straight line to existing with less blood (more in the after life).
