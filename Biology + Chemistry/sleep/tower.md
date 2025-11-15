@@ -12,7 +12,7 @@ A "tower" (across the multiverse) focuses on what gets you to the after life the
 
 In our universe, at the present moment, the "tower" is overcoming sleep. It signifies high control of the eyes and heart.
 
-Historically, nemeses of people would always "see" us in directions where we would always sleep, instead of involving more nocturnal traits.
+Historically, nemeses of people would always "see" us in directions where we would keep sleeping, instead of evolving more nocturnal traits.
 
 ...
 
