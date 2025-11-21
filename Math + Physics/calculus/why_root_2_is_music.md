@@ -2,7 +2,7 @@
 
 Root 2, based on a diagonal of a square in a circle, wraps around other square roots, because it is based on the 3.14159265 in π, and all other square roots are lower down π.
 
-This means each tick of time, all higher square roots (or more complex vision choices) must stay in sync with root 2. This needs to happen every tick at c (the speed of light in our reality).
+This means each tick of time, all larger square roots (or more complex vision choices) must stay in sync with root 2. This needs to happen every tick at c (the speed of light) in our reality.
 
 So we know the triangle and galaxy and sun keep mathematically filling in these root-2 numbers.
 
@@ -16,4 +16,4 @@ This means that in π there is a "little part" (light) and "big part" (shapes). 
 
 However, in 2D, we can understand from the sqrt(2)/7, 0.202030508, there is not a third part (a 1) that fits in the number. Instead the "0" indicates the counting is staying in sync, with 2 sides. 
 
-The expression of the sqrt(2) in 2D proves that the first vision choice of 3.14159265 is equivalent of the power of counting forever.
+The expression of the sqrt(2) in 2D proves that the first vision choice of 3.14159265 is equivalent to the power of counting forever.
