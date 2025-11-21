@@ -16,4 +16,4 @@ This means that in π there is a "little part" (light) and "big part" (shapes). 
 
 However, in 2D, we can understand from the sqrt(2)/7, 0.202030508, there is not a third part (a 1) that fits in the number. Instead the "0" indicates the counting is staying in sync, with 2 sides. 
 
-The expression of the sqrt(2) in 2D proves that the first vision choice of 3.14159265 is equivalent to the power of counting forever.
+The expression of the sqrt(2) in 2D proves that the first vision choice of 3.14159265 is equivalent to the power of counting indefinitely.
