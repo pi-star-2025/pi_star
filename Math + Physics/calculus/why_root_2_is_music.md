@@ -1,6 +1,6 @@
 ## Root 2 is Music
 
-Root 2, based on a diagonal of a square in a circle wraps around other square roots, because it is based on the 3.14159265 in π, and all other square roots are lower down π.
+Root 2, based on a diagonal of a square in a circle, wraps around other square roots, because it is based on the 3.14159265 in π, and all other square roots are lower down π.
 
 This means each tick of time, all higher square roots (or more complex vision choices) must stay in sync with root 2. This needs to happen every tick at c (the speed of light in our reality).
 
@@ -10,7 +10,7 @@ Whatever feels like it is "filled in", or mathematically created by root 2, is m
 
 ...
 
-The 1 3.14159265 of π implies that as you transition between shapes, the transition is seen as a third parts (2 shapes and light as a transition in between).
+The 1 in 3.14159265 of π implies that as you transition between shapes, the transition is seen as a third part (2 shapes and light as a transition in between).
 
 This means that in π there is a "little part" (light) and "big part" (shapes). As a result the 3D/4D sqrt(2), 9265, is sufficient to express 45-45-90 degree angles. From 0.33699633699633699, (((92/(3 * 4 * 5))/65/7) * 100, there is a clear choice to be "little" (33 as day, or 99 as night) or "big" as 6 in between, in continuous wavelengths. Because the "1" of light is clearly expressed, only 9265 is required to express a 45-45-90 degree triangle.
 
