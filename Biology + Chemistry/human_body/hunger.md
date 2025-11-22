@@ -1,13 +1,9 @@
 ## Hunger
 
-Hunger can help us understand pi (π), bc it describes the metal-driven quantum gravity down the number. 
+Hunger can be decreased by understanding we all share air.
 
-The number is very "hungry" to find gold, which is sparse in the core of the earth, and similar to combinations of other metals (ex: iron, nickel, selenium). 
+For example, when we yawn, it is slightly sharing air with people "above" you.
 
-We really like gold, bc the behavior of its electrons is described by a straight line after 3.14159265 of π. This even includes certain games/seductions to look for gold, in order to achieve the original goals of the universe to harmonize red/blue/gold.
+Hunger comes from slightly sharing air with people "below" you.
 
-We share a similar hunger to find gold, which includes a pull to the center of earth, manifested as hunger.
-
-Thirst, lust, and other core emotions are similar, pulling us via π to the center of the earth to find gold. 
-
-Antigravity/cold fusion is then mathematical answers that go in a straight line up π.
+To some degree, if you have negative feelings about sharing it can make you more hungry.
