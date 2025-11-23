@@ -1,6 +1,6 @@
 ## Salamander
 
-Some compare the original goddess to salamanders, bc they sometimes like fires.
+Some compare the original goddess (triangle of π) to salamanders, bc they sometimes like fires.
 
 Salamanders are a feeling amphibian, indicated by their stickiness and blinking habits. In addition, they have heat systems similar to lizards who have incredible heat tolerance. It's not healthy, but the combination of feeling and having heat immunity can make fires fun.
 
